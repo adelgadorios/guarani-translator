@@ -1,0 +1,12 @@
+{
+  "type": "service_account",
+  "project_id": "python-translator-344600",
+  "private_key_id": "7514993056d3fdf2b74338db7bb43c034dd02fe6",
+  "private_key": "-----BEGIN PRIVATE KEY-----\nMIIEugIBADANBgkqhkiG9w0BAQEFAASCBKQwggSgAgEAAoIBAQDSH5FqCZp3Hc0q\n8CLdQviTWnhpKVEJTV3qp3lPSvAgXhzVqRWQ0Bx7r5clOXnWM6M/f5wxfX9gdjxu\noTcxZZzKJmyiCA/dOfjKN0/3eamccVudQbnaQb+qiCg+bnZTH+ODSQhXx7czPJTI\n3WyesDY8L0FSLIQ4V4/Z/pEGQUBo708XWuGogV+MaCn9HZyrAq/iZnnMSZsdmFW+\niVbOvaW9eA1laluPxAVsFfMTHEhx3yxKYVHE3EjrQ3tjt0jy4f9936GQrRrM6MiX\nukDQssXgzDm39LZSNjqafEqd9ghbQIgfSRgVIPEybmi1/0pVniQ0Jl3SGpEmfeAH\nVf6QQeLTAgMBAAECgf5xJD+esdvdDMyAebmupXS9lJbyzhFyBIV51LPMJcjX8626\ncj15RkdLF0FfQAm9JcIj0VerxIUgptiBCCaImgbmg/GEiPopOL80I4DENuXiQ3Zz\nrPBmH0/aDSftE422voivivJ87zR7JzdsU39kaVZUm7rfSWfon9r86SnLb36hnsnK\nJMLwTmMEsfpNDI2kaPN7luP79XdYIo0KLXhOhZ53mnFVXmjpbiqlQHYu8HJqryqd\nEq5TNqACjrGTUHhsVg0NhysYu5NcmhAADPi4txxig7ajsTm/gWcP/1nCFVKR0auL\nEuyz9F2XZMDOsnwMRFsIrVGpmHd9l2ZdBPLIMQKBgQD20jN2/tSWN3MyYNMwgHDB\ndBYGqD/vAa/HJHgul/MYHcZOZVaNGe5GPlS0J7PwRDZgGHylE+p5mHN5tRXu2ySk\nuQ8msF4aN/XkzpMKthYo7FnV4Sqo+QI0lwnqTUptYuk511D+LQvksKs9iflFIthP\nES7Dut/kubz+Q7Qd0AndmwKBgQDZ7/6ty7EulhceC8/6mMf46nQKyiyxZzh3Rv/s\nvjwepNpXi9sj8GrjCbEwijwH8iFJNpdpzyQLn3lFb3j7JtAwMHQRt1l31cMaGKhD\nhuhaVyR+RHbf0P0Hh7QuMpQreMrcUpZgCQVZosf1FZ2e9Rdeb1XNvvWTjO5e/bYD\nZ9D/KQKBgFld2HaAZBaTsykNd8n651iUIJl+d8+hC7UOFlnAeKtFtJSUCpeCSQyz\n6tVj/rnC6PE4TIE0ydQHB+CMWYmnXQgrXToD576Ufnq+9OyO600b7pcLNPgDWPIT\nsepc29LpWkqwFEpDoyfFc+sPNur6Z9mQ/h6uXfyh57UkbGXS+o97AoGBAJAnO6kP\ng4oSAwZ/v7i9WABgbBM6+Wb6pJHY561bg36tgjLIMlJKUxkLryUxOlXzJWs87dgy\nCGCbwmZYPoi5epl1Y0DYqxglz6AyURIhaQ1geKYAeTTAEq3paBfqorFCe8RR6F9r\neBt7HZISEykyapuvPu0Rc3R+kqlIXh1QjSBJAoGAVgZ34EvxCyQ4AUqPncJ3HOak\n2RcO4ZvkudashPoZt2bH1nwPQFn8zvEQFk5NnLsu1hUsOWfX9PlaloHBwnRvEfKb\njvbq6HMrZBYADg7rbHsq9IItQfHnog3DG7VUv87JTPOjfuMkfP9OnuInlmLoSpyB\naan8llKm/kXr28PA9wM=\n-----END PRIVATE KEY-----\n",
+  "client_email": "python-guarani-translator@python-translator-344600.iam.gserviceaccount.com",
+  "client_id": "105542079550548494749",
+  "auth_uri": "https://accounts.google.com/o/oauth2/auth",
+  "token_uri": "https://oauth2.googleapis.com/token",
+  "auth_provider_x509_cert_url": "https://www.googleapis.com/oauth2/v1/certs",
+  "client_x509_cert_url": "https://www.googleapis.com/robot/v1/metadata/x509/python-guarani-translator%40python-translator-344600.iam.gserviceaccount.com"
+}
