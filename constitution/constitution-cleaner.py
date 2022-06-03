@@ -1,4 +1,4 @@
-"""converting the spanish constitution into a readable corpora
+#converting the spanish constitution into a readable corpora
 f = open('constitution-es-separated.txt', 'w')
 with open("test.txt", 'r') as file:
     for line in file:
@@ -9,7 +9,6 @@ with open("test.txt", 'r') as file:
         grade_data = line.replace('.', '.\n')
         f.write(grade_data)
     f.close()
-"""
 # converting the guarani constitution into a readable corpora
 f = open('constitution-gn-separated.txt', 'w')
 with open("constitution-gn.txt", 'r') as file:
