@@ -1,0 +1,4 @@
+./run_baseline_system.sh gn /home/ale/guarani/americasnlp2021/data/guarani-spanish test-cleanedup-data-joparaless 100 -CLI
+
+gcloud alpha compute tpus tpu-vm ssh guarani-vm --zone us-central1-a
+. venv/bin/activate
