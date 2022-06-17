@@ -1,8 +1,5 @@
 Teju Jagua es el primer hijo de Taú y Keraná. 
-Éste animal grande y horrible posee cuerpo 
-de iguana y siete cabezas de perro. Su cuerpo 
-es como el de un lagarto grande, se desplaza 
-arrastrándose y por su tamaño no puede ocupar todo su poder. Se dice que bajo su dominio están las cavernas y es el protector de las 
+Éste animal grande y horrible posee cuerpo de iguana y siete cabezas de perro. Su cuerpo es como el de un lagarto grande, se desplaza arrastrándose y por su tamaño no puede ocupar todo su poder. Se dice que bajo su dominio están las cavernas y es el protector de las 
 frutas. Hay quienes dicen que se alimenta solamente de frutas y miel.
 Mbói Tu’ĩ es un enorme y feo animal. Su cuerpo 
 es parecido al de una serpiente, en cambio su 
