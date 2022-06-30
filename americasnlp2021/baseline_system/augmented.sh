@@ -4,4 +4,4 @@
 #SBATCH -p Quick 
 #SBATCH --gpus=8  
 conda activate translator
-./run_baseline_system.sh gn ../../augmented-data-set augmented-data-set 100 -CLI
+./run_baseline_system.sh gn ../../augmented-dataset translations/augmented-dataset-results 100 -CLI
