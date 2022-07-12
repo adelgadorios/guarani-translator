@@ -1,7 +1,7 @@
 #!/bin/bash -l
-#SBATCH -o std_out3
-#SBATCH -e std_err3
+#SBATCH -o std_out2
+#SBATCH -e std_err2
 #SBATCH -p Quick 
 #SBATCH --gpus=8  
 conda activate translator
-./run_baseline_system.sh gn ../../augmented-dataset translations/augmented-dataset-results 100 -CLI
+./run_baseline_system.sh gn ../../augmented-dataset augmented-results 100 -CLI
