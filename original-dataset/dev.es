@@ -1,210 +1,3 @@
-Además, se hizo la presentación y luego la validación del contenido del informe ejecutivo que será remitido a los tres poderes del Estado.
-Asimismo, trataron otros puntos de interés de la comisión, que trabaja de manera interinstitucional a favor de las lenguas indígenas.
-Tercera Sesión de la Subcomisión de Información, Comunicación y Lengua de Señas
-Este viernes 11, a través de la plataforma virtual Zoom, integrantes de los distintos sectores de la Subcomisión de Información, Comunicación y Lengua de Señas sesionaron por tercera vez en lo que va de este 2020.
-La sesión fue presidida por la titular de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, quien también lidera esta subcomisión de Conadis.
-Las cartas de aceptación serán enviadas hasta el 31 del mismo mes.
-Para más información se debe acudir a https://conpla.weebly.com/inscripciones.html.
-Lanzan aplicación en guaraní Aime Porã para consulta sobre medicamentos
-La empresa paraguaya Pharmanest presentó la innovadora herramienta tecnológica Aime Porã, una aplicación para teléfonos inteligentes que provee al usurario informaciones básicas en guaraní sobre medicamentos farmacéuticos de venta libre.
-La presentación se realizó este lunes 24, en el marco de la semana de la lengua guaraní Rohayhu Che Ñe’ẽ.
-Aime Porá es una app gratuita que permite al usuario con el simple acto de activar la cámara del celular y apuntar al medicamento, recibir un video de 30 segundos con la información básica del medicamento en el idioma guaraní.
-La traducción al guaraní y la grabación fueron posibles gracias al apoyo de la Secretaría de Políticas Lingüísticas (SPL), así como de la Academia de la Lengua Guaraní.
-La SPL celebra el hecho de que empresas privadas se sumen cada vez más con innovadores emprendimientos que fortalecen el uso efectivo de la guaraní.
-SPL distinguirá mañana a 23 promotores de la lengua guaraní de diferentes ámbitos
-En el marco de la séptima edición de la semana de la lengua guaraní, la Secretaría de Políticas Lingüísticas distinguirá con el trofeo Rohayhu che ñe’ẽ a 23 promotores de la lengua de distintos ámbitos, que incluyen programas y conductores de medios de comunicación, redes sociales, referentes del ámbito musical, académico, literario, deportivo, etc., que constantemente utilizan y promueven el uso del idioma guaraní.
-Foto: Entrega del trofeo Rohayhu che ñe’ẽ del 2019.
-El evento será mañana martes 25 de agosto, en coincidencia con el Día del Idioma Guaraní, a partir de las 10:00, a través de Facebook Live de la Secretaría de Políticas Lingüísticas.
-Con la distinción, la SPL busca incentivar el normal uso de la lengua guaraní en los diferentes ámbitos de la sociedad; asimismo, reconocer la labor de muchas personas e instituciones que apuestan por el uso de este idioma.
-La lista de galardonados crece cada año a fin de llegar a la mayor cantidad de personas que promueven el guaraní.
-Las personas, instituciones o programas de medios que serán distinguidos aparecen en el siguiente listado, con la clasificación por categorías:
-I-Medios y programas de televisión: 1-Ñanemba’éva de C9N, 2-Tercer tiempo de canal Trece;
-II-Comunicadores: 1-Elvira Martínez Iglesia, 2-Milciades Aguilera, 3-Guido Gustavo González;
-III-Redes sociales: 1-Fabio Esteche;
-Agenda de la semana de la lengua guaraní “Rohayhu che ñe’ẽ” 2020
-En el siguiente link  Agenda de la semana de la lengua guaraní  podrás acceder a todas las actividades programadas en el marco de la celebración de la semana de la lengua guaraní “Rohayhu che ñe’ẽ” 2020.
-Cada actividad podrá ser aprovechada y acompañada a través de Facebook Live de la Secretaría de Políticas Lingüísticas.
-Organizan 5° seminario sobre Traducción, Terminología y Diversidad Lingüística
-L a Fundación Yvy Marãe’ỹ y el Instituto Técnico Superior de Estudios Culturales y Lingüísticos Yvy Marãe’ỹ realizarán en la semana de la lengua guaraní el 5° seminario internacional sobre Traducción, Terminología y Diversidad Lingüística “Jarojera guarani ñe’ẽ”.
-El evento se desarrollará vía webinar y la participación será abierta y gratuita.
-Más información se puede solicitar en Yvy Marãe’ỹ (Cnel. Romero 318 ha Cnel. Bogado, San Lorenzo).
-Teléfonos (021) 580-548 y (0981) 282-969, o al correo  yvymaraey@yvymaraey.com.py .
-“Rohayhu che ñe’ẽ”: Invitan a celebrar el guaraní por toda una semana
-edición consecutiva de la semana de la lengua guaraní “Rohayhu che ñe’ẽ” que será del 24 a 28 de agosto.
-El martes 25, Día del Idioma Guaraní, a las 10:00, se realizará la tradicional entrega del trofeo “Rohayhu che ñe’ẽ” a promotores y cultores de la lengua guaraní de diferentes ámbitos.
-A las 13:30 se realizará la clausura del Curso de Guaraní Comunicativo virtual para funcionarios públicos, actividad coordinada entre la SPL y la Secretaría de la Función Pública.
-También para el día martes, a las 18:00, la SPL en coordinación con el Instituto Superior de Lenguas (FF-UNA) realizarán la conferencia sobre “Hechos históricos de la lengua guaraní, como lengua oficial del Paraguay”.
-Para el día miércoles 26, a las 10:00, está previsto el conversatorio sobre “Avances de la normalización y normativización de la lengua guaraní en la actualidad”, un evento coordinado entre la SPL y la Academia de la Lengua Guaraní.
-El jueves 27, a las 10:00, se iniciará el “II seminario de buenas prácticas sobre el uso de la lengua guaraní en la función pública”, un evento coordinado entre la SPL y las Unidades de Asuntos Lingüísticos.
-Asimismo, para las 19:00 está prevista una serenata al idioma guaraní con destacados artistas, entre intérpretes, cantautores, etc.
-El día viernes 28, desde las 10:00, el MEC, la ANEAES y el CONES participarán del conversatorio sobre los “Avances de la lengua guaraní en la Educación Superior”.
-Y como clausura de la edición 2020 de “Rohayhu che ñe’ẽ”, a partir de las 19:00, está previsto el festival de poesía en guaraní.
-El abanico de actividades en homenaje a la lengua guaraní se podrá seguir en directo a través de Facebook Live de la Secretaría de Políticas Lingüísticas.
-Asimismo, desde la SPL invitamos a todos los connacionales, residentes en el país o en el exterior, a formar parte de la campaña de uso y promoción de la lengua guaraní en todos los ámbitos e interacción social.
-​SPL celebra su aniversario de manera virtual
-Hoy, 11 de agosto, al conmemorarse el aniversario número 9 de la Secretaría de Políticas Lingüísticas y con la actual situación generada por la pandemia, se realizó un acto de homenaje a través de Zoom, del mismo participaron autoridades y funcionarios de la institución, referentes de las Unidades de Asuntos Lingüísticos, artistas e invitados especiales.
-La Academia de la Lengua Guaraní (ALG) invita al conversatorio virtual gratuito sobre Guarani Ñe’ẽryru’apo (Elaboración del Diccionario Guaraní).
-Será este viernes 7 de agosto, a las 19:30, a través de Google Meet, y quien desee participar deberá llenar un formulario en  https://docs.google.com/forms/d/e/1FAIpQLSe6eCxKilfodxOioEUX6pvjR-Jt9p8ihUKD0URUqIkUxN8ihg/viewform .
-El desarrollo del conversatorio Guarani Ñe’ẽryru’apo (Elaboración del Diccionario Guaraní) estará a cargo de la académica de número de la ALG, Ladislaa Alcaraz de Silvero, quien es directora del Departamento de Lexicografía y Terminología de dicha institución.
-La actividad académica forma parte de una serie de eventos que lleva adelanta la Academia de la Lengua Guaraní en este agosto, mes en que se celebra el Día del Idioma Guaraní.
-El idioma guaraní es visibilizado con el castellano en cartelería, banner, logos, videos, etc.
-De esta manera, estas iniciativas en el departamento de Itapúa se enmarcan en las líneas de la Ley 4251/10, De lenguas, con las que se promueve el uso equitativo de los dos idiomas oficiales del país.
-La Secretaría de Políticas Lingüísticas celebra y apoya esta y otras iniciativas que apuestan en la normalización del uso oral y escrito del guaraní con el castellano.
-Foto: Ilustrativa.
-Referentes de la Unidades de Asuntos Lingüísticos se reunieron vía Zoom
-Miembros de las Unidades de Asuntos Lingüísticos (UAL) de los diferentes Organismos y Entidades del Estado mantuvieron este lunes una reunión virtual con autoridades de la Secretaría de Políticas Lingüísticas (SPL) con el objetivo de planificar las próximas acciones para el cumplimiento de la Ley 4251/10, De lenguas, desde las distintas instituciones públicas.
-La reunión vía Zoom estuvo presidida por la ministra de la SPL, Ladislaa Alcaraz de Silvero, quien brindó unas orientaciones generales, referidas a la creación, funcionamiento y fortalecimiento de las UAL.
-Fue acompañada de la directora general de Planificación Lingüística de la SPL, Celia Godoy, quien proporcionó las orientaciones específicas sobre los próximos trabajos con los miembros de UAL.
-En la oportunidad analizaron el parecer técnico de las autoridades y representantes de los Organismos y Entidades del Estado sobre el Protocolo de Refrendo y Reconocimiento de Normativización de las Lenguas Indígenas del Paraguay.
-Asimismo, se establecieron acuerdos y compromisos para seguir avanzando en los objetivos propuestos desde este grupo de trabajo.
-Además de las autoridades de la SPL, participaron de la reunión representantes de la Secretaría Nacional de Cultura, Instituto Paraguayo del Indígena, Ministerio de Educación y Ciencias y el Consejo de Educación de pueblos indígenas.
-Celebran segunda sesión de Subcomision de Informacion, Comunicación y Lengua de Señas
-El director de Asesoría Jurídica informó a la subcomisión acerca de la Ley 6530/20, aprobada recientemente por el Poder Ejecutivo, que reconoce oficialmente a la Lengua de Señas Paraguaya (LSPy), como primera lengua de las personas con discapacidad auditiva del Paraguay, para la participación plena y efectiva en la sociedad.
-Dentro de la reunión se dialogó a partir de una visión compartida entre Estado y la sociedad civil para poder cumplir con los derechos lingüísticos de las personas con discapacidad auditiva.
-Además, la agenda de la reunión abordó los logros alcanzados de la subcomisión que fueron expuestos por la directora general Celia Godoy.
-Entre los logros se pueden mencionar el diseño del Plan de Acción para la implementación de la Ley 6354/19 que garantiza el acceso a la comunicación e información de las personas sordas y con discapacidad auditiva para realizar trámites en los Organismos y Entidades del Estado.
-Asimismo, la ministra de la SPL, Ladislaa Alcaraz de Silvero, expresó su alegría por concretar la reunión en estos tiempos y respetando las medidas de distanciamiento social estipuladas por el Ministerio de Salud Pública y Bienestar Social y que la metodología de trabajo se realizará de forma telemática.
-SPL e ISL-UNA firmaron convenio de cooperación
-La Secretaría de Políticas Lingüísticas (SPL) y el Instituto Superior de Lenguas (ISL) de la Facultad de Filosofía de la Universidad Nacional de Asunción (FF-UNA) concretaron este miércoles la firma de un convenio de cooperación interinstitucional.
-La rúbrica del documento, concretada en el despacho de la ministra de la SPL, presidieron las titulares de ambas entidades, Ladislaa Alcaraz de Silvero (SPL) y Valentina Canese (ISL).
-La motivación principal del acuerdo entre ambas instituciones es la de promover proyectos que apunten especialmente a la revalorización, la visualización y la normalización del uso oral y escrito de la lengua guaraní, como lengua oficial del país, y la documentación, promoción y difusión de las lenguas indígenas y de las demás lenguas nacionales y extranjeras.
-La SPL y el ISL se comprometen, además, trabajar en la incorporación de la lengua guaraní como lengua enseñada y de enseñanza en las carreras de grado y el desarrollo de cursos de postrado en las lenguas oficiales y extrajeras.
-Además de concretar la traducción de cartelería, folletería, y/u otros materiales requeridos por las partes.
-Reunión virtual de especialistas en lengua de señas
-Desde la Secretaría de Políticas Lingüísticas (SPL) se propició este martes una primera reunión virtual sobre lengua de señas con la participación de autoridades y técnicos de la mencionada institución, de la Secretaría Técnica de Planificación del Desarrollo Económico y Social (STP) y lingüistas de Argentina y Canadá.
-Foto: Captura de pantalla.
-Este primer encuentro virtual sirvió para dialogar desde el punto de vista lingüístico sobre posibles trabajos académicos, científicos y de planificación que puedan llevarse a cabo a fin de favorecer a la lengua de señas del Paraguay, y por ende a los usuarios; a partir del importante paso dado recientemente con la promulgación de la Ley 6530/20 “Que otorga reconocimiento oficial a la Lengua de Señas Paraguaya (LSPy)”.
-La titular de la SPL, Ladislaa Alcaraz de Silvero, presidió la reunión, quien fue acompañada desde la SPL por la directora general de Planificación Lingüística, Celia Godoy, el director general de Investigación lingüística, Domingo Aguilera, además de técnicos de dicha cartera de Estado.
-Los lingüistas y especialistas en lengua de señas del exterior que acompañaron la reunión fueron: Andrés Salanova, desde Canadá, y Yanina Boria y Alicia Avellana, desde Argentina.
-Desde la STP acompañaron Laura Riveros y Marcelo Goiburu, además de los intérpretes en lengua de señas.
-Guaraní, en la cima en navegador Firefox
-Es claro que el idioma guaraní va ganando su propio espacio en las nuevas tecnologías.
-Un ejemplo es el enorme trabajo que constituyó la traducción del navegador en internet Mozilla Firefox, un proyecto conjunto iniciado en el 2014 entre la Secretaría de Políticas Lingüísticas (SPL), Facultad Politécnica de la UNA y el Ateneo de Lengua y Cultura Guaraní.
-El total de palabras traducidas al guaraní del navegador para computadora de escritorio fue de 45.000, aproximadamente; sin embargo, por las constantes actualizaciones que exige la herramienta, la traducción al guaraní también sigue siendo realizada constantemente por el técnico de la Dirección General de Investigación Lingüística de la SPL, Lic. Abelardo Ayala.
-Es así que, entre los más de 100 idiomas a los que ya fue traducido Mozilla Firefox en todo el mundo, el guaraní se ubicó en primer lugar según el reporte mensual de la empresa, tras alcanzar 2.
-299 nuevas traducciones en el último mes reportado.
-Otro trabajo ya realizado con el navegador fue también la traducción al guaraní de toda la plataforma para teléfonos móviles que operan con Android.
-Otra importante tarea emprendida por las instituciones mencionadas arriba.
-Foto: Archivo.
-Comisión de lenguas indígenas sesionó de manera virtual
-Este viernes se celebró la tercera sesión de la Comisión Nacional del Año Internacional de las Lenguas Indígenas (CNAILI).
-Esta vez, atendiendo las medidas  sanitarias por la pandemia, en encuentro se realizó de manera virtual a través de la herramienta Zoom.
-La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, en su carácter de presidenta de la CNAILI, presidió la sesión, que fue acompañada por varias autoridades y representantes de los diferentes sectores integrantes de la comisión, además de la participación de referentes indígenas.
-La ministra de la SPL realizó la contextualización del encuentro y la presentación de primer informe ejecutivo de la comisión presentado a los tres poderes del Estado.
-Luego, la encargada de Despacho de la Dirección General de Documentación y Promoción de Lenguas Indígenas de la SPL, Celia Godoy, habló sobre las acciones y los logros de las diferentes subcomisiones de la CNAILI.
-Posteriormente, integrantes de los diferentes sectores que integran la comisión participaron de un debate, intercambio de opiniones y posturas sobre los distintos aspectos que afectan tanto a los trabajos ya realizados y los proyectos a corto y mediano plazo de la comisión que favorecerán a las distintas lenguas indígenas del Paraguay
-“¡Qué hermosa es tu voz!”: 102 relatos de los enlhet
-Relatos de los enlhet sobre la historia de su pueblo” es el título del libro editado por Hannes Kalisch y Ernesto Unruh.
-Se trata de una recopilación de relatos de ancianos y ancianas enlhet, nacidos entre 1920 y 1940, que han vivido el proceso de colonización de su territorio con todas las consecuencias que ha traído para su sociedad.
-El valioso material de lectura se puede adquirir en Asunción en Servilibro (25 de Mayo y México, Teléf. 021 444 770) o en Museo del Barro (Grabadores del Cabichuí e/ Cañada y Emeterio Miranda, Teléf. 021 607 996); y en el Chaco, en la librería Fernheim de la ciudad de Filadelfia.
-En “¡Qué hermosa es tu voz!” los enlhet comparten piezas de la memoria de su pueblo a través de 102 relatos, expresados inicialmente en su lengua propia.
-Permiten escuchar así su visión sobre lo que su pueblo vivió en los últimos cien años.
-Lo hacen con la intención expresa de invitar a un diálogo con aquellos con que conviven en un mismo país.
-Las voces de los relatores enlhet difieren completamente de lo que los nuevos pobladores de su territorio dicen de ellos y su historia.
-Existen numerosas fuentes escritas que reflejan tal mirada externa, en su mayoría producidas en alemán por los colonos menonitas y sus misioneros.
-El pueblo indígena enlhet pertenece a la familia lingüística Maskoy.
-Registra un total de 8.167 habitantes y se encuentran asentados en los departamentos de Presidente Hayes, Boquerón y Alto Paraguay.
-Organizan congreso “El uso de la lengua guaraní y el coronavirus”
-A través de la plataforma Zoom se llevará adelante el día sábado 18 de julio, de 8:00 a 12:30, el congreso nacional “El uso de la lengua guaraní y el coronavirus” que lleva como lema “La terminología guaraní en tiempo de pandemia”.
-Se trata de una serie de conferencias que reúne a destacados exponentes del idioma guaraní en las áreas de traducción, intérprete, terminología, etc.
-El VI Congreso es organizado por Avañe’ẽ Kuaareka Aty (AKA) - Asociación de Investigadores de la Terminología, Traducción e Intérprete Guaraní (AITTIG).
-Tendrá una duración de 20 horas pedagógicas y la inversión es de tan solo 30.000 guaraníes (solo para quienes deseen contar con certificado).
-Consultas e inscripción en (0983) 336 322 / (0981) 840 359 / (0985) 395 033, o en ayvukuaareka@gmail.com.
-La ministra de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, tendrá a su cargo la presentación del tema “El caso de los términos de la Agencia Espacial del Paraguay (AEP)”.
-Otros destacados expositores desarrollarán: “El código de ética del traductor”, “Terminología jurídica en tiempo de pandemia”, “Terminología del coronavirus”.
-Asimismo, “La construcción del guaraní en el aula (desterrando el mito del guaraní de laboratorio)”, “Coincidencia de la terminología y la traducción en tiempo de pandemia”, “AKA dentro de la comunicación digital” y “La recuperación de la sintaxis guaraní”.
-El congreso está dirigido a intérpretes, traductores, terminólogos, docentes universitarios y estudiantes, comunicadores, representantes gubernamentales y todos los interesados en ampliar su conocimiento sobre el idioma guaraní.
-SPL presidió reunión virtual a favor de lenguas indígenas
-La ministra de la Secretaría de Políticas Lingüísticas (SPL) lidero la 1ª reunion virtual de Socialización y Validación del Protocolo de Refrendo y Reconocimiento de Normativización de las Lenguas Indígenas del Paraguay.
-También participaron de la misma, el asesor juridico de la SPL, Osvaldo Nuñez, la encargada de despacho de la direccion general de Documentación y Promoción de Lenguas Indígenas, Celia Godoy, y su equipo ténico.
-Asimismo, autoridades y representantes de la Secretaría Nacional de Cultura, Instituto Paraguayo  del Indígena, Dirección General de Educación Escolar Indígena, además de miembros del consejo de dicha dirección.
-En la misma, el asesor jurídico de la SPL presentó un documento borrador del Protocolo de Refrendo y Reconocimiento de Normativización de las Lenguas Indígenas del Paraguay.
-Luego, los participantes discutieron el documento, además de emitir sus sugerencias y opiniones al respecto.
-Curso virtual gratuito de guaraní para funcionarios públicos
-La Secretaría de la Función Pública (SFP), desde el Instituto Nacional de la Administración Pública del Paraguay (INAPP), en conjunto con la Secretaría de Políticas Lingüísticas (SPL), lanzan el curso gratuito de Guaraní Comunicativo Nivel I en la modalidad virtual (Plataforma Moodle) dirigido a funcionarios públicos.
-Los interesados en participar del mismo pueden ingresar al siguiente enlace https://www.sfp.gov.py/sfp/noticia/14778-la-sfpinapp-convoca-a-servidores-publicos-a-postular-a-cursos-de-capacitacion-en-modalidad-virtual-.html#.Xv9z4ChKiUl; donde también se puede acceder a otros interesantes cursos ofrecidos por el INAPP.
-El curso de Guaraní Comunicativo Nivel I tiene una carga horaria de 40 horas (10 horas semanales); el límite de fecha para la postulación es hasta el jueves 9 de julio, y las clases iniciarán el lunes 13 de julio.
-Funcionarios públicos seguirán capacitándose en guaraní
-Tras la firma de un convenio de cooperación interinstitucional entre la Secretaría de Políticas Lingüísticas (SPL) y la Secretaría de la Función Pública (SFP), concretada este jueves, se podrán seguir desarrollando las clases de guaraní comunicativo para funcionarios públicos.
-El documento fue firmado por las máximas autoridades de ambas carteras de Estado, Ladislaa Alcaraz de Silvero (SPL) y su par de la SFP, Cristina B ogado.
-Gracias al acuerdo interinstitucional entre la SPL y la SFP, hasta la fecha ya permitió que muchos funcionarios públicos de varias instituciones se capaciten en lengua guaraní, con el objetivo de atender en su lengua propia a los ciudadanos guaranihablantes.
-Con la renovación del convenio concretada hoy se volverán a implementar el curso de guaraní comunicativo para seguir capacitando en el uso oral y escrito de este idioma a más funcionarios del Estado.
-La directora general de Planificación Lingüística de la SPL, Celia Godoy, acompañó a la ministra Ladislaa Alcaraz de Silvero.
-Ministra de SPL participó de una reunión virtual internacional
-América Latina es la región del mundo con la mayor riqueza lingüística con alrededor de 99 familias de lenguas.
-Las más de 500 lenguas indígenas diferentes que aún se hablan en América Latina están todas en situación de mayor o menor amenaza o riesgo, según los indicadores de vitalidad lingüística planteados por la Unesco (2010).
-La cuarta parte de estos idiomas están en riesgo de extinción, si es que no se toman medidas drásticas al respecto.
-Feliz día a todos los locutores del Paraguay
-La Secretaría de Políticas Lingüísticas (SPL) saluda y felicita a todos los locutores y las locutoras del país hoy por su día.
-Asimismo, reconoce y valora la importante tarea de los profesionales de la voz y de la palabra al ser ellos los constantes multiplicadores de los temas que atañen a nuestra sociedad utilizando como herramienta fundamental la palabra, en lenguaje oral.
-En ese sentido, al ser nuestro país plurilingüe (lenguas oficiales guaraní-castellano, diecinueve lenguas indígenas y lenguas extranjeras que coexisten en el país), son los profesionales de la comunicación quienes día a día amplifican la voz de nuestra riqueza lingüístico-cultural, a través de la utilización de estos distintos idiomas que nos hacen únicos como Nación.
-Es también muy importante la labor de los locutores por considerárseles como referentes en el uso correcto y adecuado del idioma, que finalmente constituye en su principal herramienta de trabajo.
-Por el Día del Locutor, desde la SPL queremos rendir un homenaje a cada una de las personas que cumplen esta encomiable labor en las diferentes localidades, comunidades, distritos y ciudades, de los distintos departamentos de toda la geografía paraguaya.
-Cada 9 de junio se celebra en Paraguay el Día del Locutor, ya que en esa fecha de 1950 fue fundada Alortpa (Asociación de Locutores y Operadores de Radio y Televisión del Paraguay), que luego, en el año 1991, pasó a llamarse Sintratel (Sindicato de Trabajadores de Radio y Televisión del Paraguay).
-Un día como hoy se declaraba al guaraní como único idioma oficial
-Un 28 de mayo de 1933, durante la Guerra del Chaco, el comandante del Ejército en Campaña, José Félix Estigarribia, mediante la Orden General Nº 51 “Declara al guaraní como idioma oficial de la Guerra” ordenando que las conversaciones y claves secretas se hagan exclusivamente en la lengua guaraní para mantener la máxima seguridad posible en las comunicaciones durante el desarrollo de las maniobras bélicas.
-Foto: internet.
-La citada orden general también disponía que toda infracción a esta disposición sobre el tráfico telefónico, su secreto y las reglas para el uso del teléfono sería severamente sancionada.
-En muchos episodios de la Guerra, el guaraní sirvió para que los paraguayos se identifiquen y se evitaran así inútiles matanzas entre ellos.
-Como idioma criptográfico, el guaraní ofreció serias dificultades para los bolivianos.
-El progresivo uso del guaraní en el ámbito judicial
-El idioma más hablado del país, el guaraní, que adquirió el estatus de lengua oficial en la última Constitución Nacional de 1992, junto con el castellano, ha dado pasos importantes que muestran la oficialización de su uso en distintos ámbitos, uno de ellos es el judicial.
-Desde el mismo texto de nuestro contrato social más importante, que viene a ser la Constitucional Nacional, fue traducido íntegramente a la lengua guaraní en el año 1992 por tres personas de reconocida trayectoria: Lino Trinidad Sanabria, Félix de Guarania y Dionisio Gauto.
-La normativa que reglamentó el artículo constitucional que refiere la oficialización del guaraní, la Ley 4251/10 “De lenguas”, en su artículo 15° indica que “ambas lenguas oficiales serán aceptadas indistintamente en la administración de la justicia”.
-En otros puntos, la mencionada ley también habla del valor jurídico de las declaraciones ante una autoridad en cualquiera de los dos idiomas oficiales; así como el derecho de utilizar cualquiera de las dos lenguas oficiales ante la administración de la justicia, y que las declaraciones sean transcriptas en la lengua elegida sin mediar traducción alguna.
-En ese sentido, merecen ser recordados y reconocidos, a través de este breve artículo, algunos hechos que demuestran la implementación oficial del guaraní en el ámbito judicial.
-Así, en agosto del 2013, la jueza en lo Civil del Cuarto Turno de Encarnación, Nilda Benítez, sacó una sentencia de ejecución en la lengua guaraní; esto, a raíz de que la abogada María Primitiva Villalba Ferrari haya presentado el escrito en el mismo idioma ante el Juzgado para la ejecución de una sentencia.
-Otro caso se dio en la ciudad de Villarrica en julio del 2016, donde el juez Paternio Emiliano Vera presenta sus alegatos finales en lengua guaraní, en el marco de un caso sobre homicidio doloso.
-En agosto del 2016, en la Circunscripción Judicial de Cordillera, el Tribunal, integrado por los jueces Antonio Ignacio Benítez López, Magdalena Narváez de Rodríguez y Alfredo Benítez Fantilli, realiza todos los alegatos y sentencia en guaraní sobre un hecho penal ocurrido en Emboscada.
-Asimismo, en setiembre del 2016, la jueza en lo Civil y Comercial de la Circunscripción Judicial de Encarnación, Nilda Benítez, dictó una sentencia judicial redactada en la lengua guaraní.
-Otro caso similar se dio en noviembre del 2016, cuando el Tribunal Permanente N° 1 de Ciudad del Este, integrado por el juez Milciades Ovelar, llevó a cabo un juicio oral y público en el idioma guaraní.
-El pasado martes 26 de mayo del 2020, el juez Tadeo Zarratea, titular del Juzgado del Quinto Turno en lo Laboral de la Capital, dictó una sentencia judicial en el fuero laboral redactada en el idioma guaraní.
-Cabe mencionar que desde la misma Corte Suprema de Justica se implementan medidas favorables para el uso del guaraní; así, en su estructura orgánica figura la Dirección de Políticas Lingüísticas Judiciales, desde donde se ha elaborado el Diccionario Jurídico Guaraní, para que los magistrados y auxiliares de justicia puedan implementar el uso de la lengua en su ámbito de trabajo.
-Asimismo, la CSJ aprobó en el 2013 la Acordada N° 838/13, que dispone la obligatoriedad del uso de los idiomas oficiales, guaraní y castellano, en todas las Circunscripciones Judiciales de la República del Paraguay.
-Estos hechos demuestran los avances en el proceso de la normalización del uso oficial de la lengua guaraní en un ámbito de extrema importancia para la ciudadanía, que es el acceso a la justicia; además, atendiendo que la población paraguaya en su mayoría es guaranihablante.
-Foto: Extracto de la sentencia firmada por el juez en lo Laboral  Tadeo Zarratea.
-Promulgan ley que otorga reconocimiento oficial a la Lengua de Señas Paraguaya
-El Poder Ejecutivo promulgó la Ley 6530/20 “Que otorga reconocimiento oficial a la Lengua de Señas Paraguaya (LSPy)” como lengua de comunicación, de instrucción, de promoción de la identidad, la cultura y los derechos lingüísticos reconocidos a la lengua de señas como primera lengua de las personas con discapacidad auditiva de Paraguay, para la participación plena y efectiva en la sociedad.
-Con el acompañamiento de legisladores de ambas cámaras, el proyecto de ley fue impulsado desde la Subcomisión de Información, Comunicación y Lengua de Señas, de la Comisión Nacional por los Derechos Humanos de las Personas con Discapacidad (Conadis), liderada por la ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero.
-Según esta ley, el Estado paraguayo, a través de las instancias competentes, regulará la formación en las instituciones de formación y capacitación, la acreditación de intérpretes a través de la Secretaría de Políticas Lingüísticas.
-Informe de Gestión 2019 de la Secretaría de Políticas Lingüísticas
-La Secretaría de Políticas Lingüísticas (SPL) comparte con la ciudadanía toda el Informe de Gestión correspondiente al año 2019, donde se puede observar de nuevo el avance en el proceso de implementación de las políticas lingüísticas emprendidas desde esta cartera de Estado.
-En el año 2019, la SPL afrontó el importante desafío extra de liderar en el país la conmemoración del Año Internacional de las Lenguas Indígenas, a parte de los tantos otros proyectos emprendidos desde la institución que son favorables a las lenguas del Paraguay, y por ende a los hablantes.
-La normalización del uso oficial de la lengua guaraní; la planificación lingüística; la documentación y promoción de las lenguas indígenas, especialmente las que se encuentran en peligro de extinción y la investigación lingüística se resaltan entre los trabajos misionales de la SPL.
-Obras en guaraní para descargar gratis
-Una excelente forma de invertir el tiempo libre es leyendo, más aún en este tiempo de cuarentena por la seguridad sanitaria; por eso, el escritor Mauro Lugo puso a disposición de manera gratuita en formato PDF seis de sus obras en guaraní o bilingüe (guaraní-castellano), que incluyen ensayo, cuento, poesía, teatro y traducción al guaraní de obras universales.
-Para descargar y leer estos textos solo debes hacer clic en estos enlaces:  Adolfina ,  Ita hũ ári ,  Karáũ ,  Léi renondépe ,  Sapy’aitemínte  y  Tembihechapy .
-El escritor Mauro Lugo es, además, traductor, docente, comunicador social y académico de número de la Academia de la Lengua Guaraní.
-En la misma se delinearon los planes a realizarse en el 2020.
-Por parte de la SPL, el técnico de la DGIL, Abelardo Ayala, brindó un pormenorizado informe acerca de las actualizaciones realizadas a la versión guaraní del navegador Mozilla (Aguaratata).
-A su vez, mencionó que la versión en guaraní de Mozilla se mantiene continuamente actualizada y que se convirtió en una referencia internacional, ya que es ponderada en cada encuentro internacional de Mozilla.
-En la reunión, realizada en la sede de la FPUNA en San Lorenzo, se presentaron los tres productos nuevos que Mozilla dio a conocer últimamente.
-Analizar el informe ejecutivo (reporte de rendición de las acciones realizadas y los objetivos alcanzados) de  la Comisión Nacional de Conmemoración del Año     Internacional de Lenguas  Indígenas a ser remitido a los presidentes de los poderes Ejecutivo y Legislativo, de conformidad con el Art. 6° de la Ley 6352/19.
-La ministra de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, presentó el informe que remitirá al Ejecutivo y a las cámaras de parlamentarios, cumpliendo así con lo establecido en la Ley 6359/19.
-Entre los puntos que resaltó la titular se pueden mencionar las acciones realizadas desde definir los mecanismos para la selección del representante de pueblos indígenas, así como determinar otros mecanismos de participación y las estrategias para la elaboración de la normativa para el funcionamiento de la comisión.
-Así también, Ladislaa Alcaraz de Silvero mencionó los logros de la Comisión y las acciones pendientes que se desarrollarán en los siguientes meses, mediante las cinco subcomisiones que conforma la CNCAILI, que ayudarán a la concreción de los trabajos que favorezcan a las lenguas indígenas del Paraguay.
-Asimismo, analizar el informe ejecutivo de la Comisión Nacional de Conmemoración del Año Internacional de Lenguas Indígenas a ser remitido a los presidentes de los poderes Ejecutivo y Legislativo, de conformidad con el Art. 6 o  de la Ley 6352/19.
-Foto: archivo.
-Ministra de SPL acompañó firma de acuerdo con las NNUU
-La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, estuvo presente en el acto de firma de convenio entre el Ministerio de Relaciones Exteriores (MRE), la Secretaría Técnica de Planificación (STP) y las Naciones Unidas (NNUU).
-El acto se llevó a cabo ayer lunes 17 de febrero, en la sede de la Cancillería Nacional, en la ciudad de Asunción, siendo este documento el primero que se firma en América Latina.
-El acuerdo permitirá trabajar en forma coordinada e integrada a las instituciones del Estado paraguayo y las distintas agencias de las Naciones Unidas, rumbo al cumplimiento de los Objetivos de Desarrollo Sostenible (ODS).
-Personas con discapacidad visual acceden a tarjetas de billetaje electrónico
-En la mañana de este lunes se realizó la entrega de tarjetas de billetaje electrónico para personas con discapacidad visual, con presencia del presidente de la República, Mario Abdo Benítez, y otras altas autoridades del Poder Ejecutivo.
-La ministra de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, también acompañó el evento realizado en la en la Explanada Litoral del Palacio de Gobierno.
-Las tarjetas de billetaje electrónico para personas con discapacidad visual son emitidas de manera gratuita (en su primera emisión) y deben ser solicitadas a través de la Senadis.
-Subcomisión de Conadis celebró su primera sesión del 2020
-La Subcomisión de Información, Comunicación y Lengua de Señas de la Comisión Nacional por los Derechos de las Personas con Discapacidad (Conadis) se reunió este miércoles con el fin de tratar temas que tienen relación a las normativas que afectan a las personas con discapacidad, la misma se realizó en el Salón Azul del Instituto Nacional de Educación Superior “Dr. Raúl Peña” (Inaes).
-La reunión fue presidida por la encargada de despacho de la Secretaría de Políticas Lingüística (SPL), María Alvarenga de Sánchez, entidad que lidera la Subcomisión.
-Los objetivos se enmarcaron en presentar los avances de la Subcomisión de Información, Comunicación y Lengua de Señas de la Conadis, así como definir las acciones y establecer acuerdos con los diferentes sectores integrantes de la Subcomisión.
-La directora general de Planificación Lingüística y el funcionario de Asesoría Jurídica, Celia Godoy y Pablo Salinas, respectivamente, acompañaron la reunión desde la Secretaría de Políticas Lingüísticas.
-La UNA ofrece licenciatura en lengua guaraní
-Desde el lunes 17 de febrero se inicia el cursillo de ingreso para la carrera de Licenciatura en Lengua Guaraní con énfasis en Educación Bilingüe Intercultural ofrecida por el Instituto Superior de Lenguas de la Facultad de Filosofía de la Universidad Nacional de Asunción.
-El cursillo es totalmente gratuito y se desarrollará de 18:00 a 20:00, en el Campus universitario de San Lorenzo, al costado de la Biblioteca Central de la UNA.
-Las clases iniciarán en la primera semana de abril hasta diciembre, de lunes a viernes de 18:00 a 21:00 horas.
-Para mayor información llamar al (0981) 463-338.
-La carrera en Lengua Guaraní tiene por objetivos que el alumno pueda manejar con fluidez el idioma, traducir del castellano al guaraní y viceversa, dedicarse a la enseñanza de la lengua, en otros.
-Los postulantes deberán demostrar un manejo básico del guaraní.
 “El déficit de infraestructura apunta a casi 600 millones de dólares.
 Para tener una solución integral hay que invertir US$ 6 millones en un proceso de 6 años”, reconoció el ministro.
 Al señalársele que el gran déficit hace pensar que no se hicieron las tareas durante los casi cinco años de gobierno, el jefe de la cartera enfatizó que se han realizado “importantes esfuerzos de mejoramiento integral de casi 1.000 instituciones”.
@@ -395,7 +188,7 @@ Un grupo de personas se manifiesta frente a la casa de la senadora Desirée Masi
 El escrache fue impulsado desde el propio Partido Colorado y algunos manifestantes dijeron ser “estudiantes autoconvocados”.
 Poco después de las 19.00 llegó hasta la vivienda de la senadora Desirée Masi un grupo de personas con carteles en mano, exigiendo la renuncia de la misma, pues alegan que protege a su marido, Rafael Filizzola, envuelto en caso helicópteros de la Policía nacional.
 José Ocampos, del Instituto Republicano de Política Estratégica (IRPE) de la Asociación Nacional Republicana, aseguró que el caso de Filizzola está paralizado supuestamente por las influencias de la Masi.
-Aseguró que hay  muchos videos y presentaron "incontables notas" para quejarse por esta cuestión, pero las autoridades ignoraron los reclamos.
+Aseguró que hay muchos videos y presentaron "incontables notas" para quejarse por esta cuestión, pero las autoridades ignoraron los reclamos.
 Paraguaya con traje de ñanduti es tapa de revista internacional
 La revista guía de la Bolsa Internacional de Turismo, ITB Berlín 2019, destacó en su tapa el rostro de una compatriota paraguaya residente en Viena y quien divulga nuestra cultura a través de la danza en Austria desde hace unos años.
 En el quinto y último día de la mayor feria mundial de turismo, la publicación que se entrega gratuitamente a todos los visitantes a la “Messe Berlín” grafica la imagen de la compatriota Estrella Godoy, según destacó la Secretaría Nacional de Turismo (Senatur).
@@ -756,8 +549,8 @@ Es así que desde Asunción ya partió uno rumbo al vecino país para liderar la
 Por su parte, Juan Carlos Muñoz, presidente del Centro de Armadores Fluviales y Maritimos del Paraguay, añadió que el permiso es por seis meses, a fin de que el buque siga su curso.
 “Ya hay una comunicación oficial de la Prefectura Argentina.
 El gobernador José Domingo Adorno (ANR) dijo que su gobierno tiene un compromiso más que especial con la educación de niños y jóvenes del departamento.
-"Queremos buscar la manera de brindar las comodidades aunque sean mínimas tanto a los estudiantes como a sus maestros en busca de alcanzar el nivel de educación deseado", dijo el  gobernador.
-"Nuestro único pecado si existiese dijo fue la de ahorrar más de G. 4.000 millones para las arcas del Estado, ya que logramos adjudicar a la empresa que presentó el precio más bajo",  detalló Adorno.
+"Queremos buscar la manera de brindar las comodidades aunque sean mínimas tanto a los estudiantes como a sus maestros en busca de alcanzar el nivel de educación deseado", dijo el gobernador.
+"Nuestro único pecado si existiese dijo fue la de ahorrar más de G. 4.000 millones para las arcas del Estado, ya que logramos adjudicar a la empresa que presentó el precio más bajo", detalló Adorno.
 Por su parte, el director de la institución Prof. Ángel Lezcano agradeció a las autoridades por el apoyo brindado a la educación de los jóvenes.
 Italia ofrece beca para abogados
 La Embajada de Italia en Paraguay informó este lunes que la Fundación Casa América de Italia ofrece una beca de estudio de nueve meses a jóvenes de hasta 30 años de edad licenciados en el ámbito jurídico.
@@ -940,7 +733,7 @@ En poco menos de una año de gestión, Retamozo ya fue acumulando denuncias y cu
 Lo que se vivió durante el temblor en Ybycuí
 El temblor que duró de 3 a 5 segundos que se sintió en barrios y compañías de esta ciudad causó susto entre los pobladores.
 Según Rafael Fugarazzo, director del Laboratorio de Sismología de la UNA, fue un “microsismo”.
-Cayetano González, poblador de la compañía Cerro Achón, manifestó  que el susto que pasó junto a su esposa fue impresionante, porque comenzaron a escuchar como zumbidos hacia el Cerro Verá y el suelo comenzó a temblar e incluso les arrojó al piso.
+Cayetano González, poblador de la compañía Cerro Achón, manifestó que el susto que pasó junto a su esposa fue impresionante, porque comenzaron a escuchar como zumbidos hacia el Cerro Verá y el suelo comenzó a temblar e incluso les arrojó al piso.
 También, escucharon una fuerte explosión en el cerro San José.
 Explicó que el Cerro Ñu Verá queda de su vivienda a unos 300 metros y el Cerro San José otros 600 metros por lo que la impresión fue bastante traumática.
 Por su parte, la intendenta, María Del Carmen Benítez, manifestó que recibió reporte de los barrios San José, San Blas y de las compañías Boquerón, César Barrientos y Rinconí; sus pobladores dijeron sentir el temblor, pero que no pasó a mayores.
@@ -1203,7 +996,7 @@ Abdo: "No quedará impune"
 "El caso metrobús no quedará impune!
 Que las instituciones profundicen su investigación", lanzó el presidente Mario Abdo Benítez, tras la confirmación del abandono de las obras por parte de la empresa Mota Engil.
 "Tiene todo nuestro apoyo Ministro" Arnoldo Wiens, agregó a través de Twitter el mandatario que se encuentra cumpliendo actividades oficiales en el departamento de Guairá.
-El caso Metrobús  no quedará impune!
+El caso Metrobús no quedará impune!
 Que las instituciones profundicen su investigación.
 “Justamente hemos hablado con el presidente electo sobre organizar mejor nuestro plan maestro de la producción agropecuario”, dijo.
 Consejo de la Magistratura expresa confianza en sus representantes
@@ -1358,7 +1151,7 @@ Castiglioni aludió a la tardía reacción de la Secretaría de Prevención de L
 “Debe ser procesado”
 “Messer está procesado y tiene que ser investigado”, señaló ayer el vicepresidente de la República electo, Hugo Velázquez.
 Agregó que no le “conoce” al “hermano del alma” de Cartes.
-Por su parte, el embajador de los Estados Unidos, Lee McClenny, dijo  que el caso Messer es una situación que involucra a la justicia del Brasil y de Paraguay, y que su país no tiene nada que ver.
+Por su parte, el embajador de los Estados Unidos, Lee McClenny, dijo que el caso Messer es una situación que involucra a la justicia del Brasil y de Paraguay, y que su país no tiene nada que ver.
 El 50% no llega al sueldo mínimo
 El economista Luis Rojas destacó que el 50% de los trabajadores en Paraguay no perciben ni el sueldo mínimo.
 Criticó la falta de institucionalidad y garantías laborales por parte del Gobierno.
@@ -1533,7 +1326,7 @@ Una importante obra fue inaugurada esta mañana en la escuela agrícola indígen
 Los alumnos indígenas del Bachillerato Técnico Agropecuario y Práctico Rural del Centro de Capacitación Agrícola privado subvencionado “La Huerta” cuentan con una nueva residencia estudiantil.
 La obra fue inaugurada este sábado en presencia de autoridades locales, padres de alumnos y amigos del centro.
 Puede albergar ahora 64 alumnos en dormitorios nuevos, que cuentan con baños modernos y un lavadero.
-La obra demandó una inversión de  G. 1.545 millones.
+La obra demandó una inversión de G. 1.545 millones.
 Más del 80% proviene de donaciones de algunas cooperativas, familias y personas particulares, según Wilfried Dueck, director de la ASCIM (Asociación de Servicios de Cooperación Indígena Menonita), organización que administra esta escuela.
 El presidenciable indicó que el Ministerio de Agricultura debe cumplir un papel importante en la recuperación de la agricultura, trabajando para la recuperación del suelo, aplicando la tecnología para producir volumen y hacer rentable el esfuerzo de los labriegos.
 Habló de articular programas de gobierno que incluyan la alianza estratégica con el capital nacional para defender a la industria paraguaya.
@@ -2005,7 +1798,7 @@ Quienes logren clasificar entre los primeros 16 lugares, participarán de una fi
 La comisión de padres busca contar con el apoyo de Yacyretá, de la Gobernación de Misiones y la Municipalidad local para poder solventar los gastos de traslado hasta la capital itapuense.
 Fiscales investigarán audios
 La Fiscalía General del Estado designó a dos fiscales que estarán encargados de investigar el caso audios del Tribunal Superior de Justicia Electoral, donde un funcionario de la institución afirma que puede cargar votos a favor del candidato que le pague.
-El programa Cháke Fake News, iniciativa para combatir la desinformación, finalizó con la premiación a la idea innovadora de estudiantes universitarios, dentro de la etapa del challenge #Infodemia, y entregó  USD 3.
+El programa Cháke Fake News, iniciativa para combatir la desinformación, finalizó con la premiación a la idea innovadora de estudiantes universitarios, dentro de la etapa del challenge #Infodemia, y entregó USD 3.
 Fueron cinco los grupos, conformados por 47 estudiantes en total, que trabajaron y presentaron sus prototipos de experiencias lúdico-educativas para evitar la difusión de información falsa en el ámbito académico, con el asesoramiento del Laboratorio de Aceleración del Programa de las Naciones Unidas para el Desarrollo (PNUD).
 La selección del equipo ganador se dio a través del consenso del jurado integrado por Jazmín Acuña (El Surtidor), Federico Filártiga (Latitud 25), Christian Parra (PNUD), Patricia Benítez (La Nación) y Santiago García (MITIC) tras escuchar a los equipos de la Universidad Americana (3), Universidad Católica (1) y Universidad Autónoma (1).
 Luego de su exposición, José Topacio, del equipo ganador, expresó que “Después de tanto esfuerzo, se ve reflejado lo que como equipo quisimos proponer, me siento feliz.
@@ -2107,7 +1900,7 @@ Gobierno débil de Abdo Benítez conviene a Brasil para iniciar la revisión del
 La agenda oculta de entrega de nuestra soberanía, que venimos denunciando, está saliendo a la luz”, advierte la vocera de la Campaña Itaipú ñane mba’e, la Mg. Ángeles Ferreira.
 La ANDE queda así en condiciones de retirar la totalidad de la energía generada por la potencia instalada de 1.550 MW que pertenece a nuestro país.
 Entregan muebles a locales educativos de Unión, en San Pedro
-La Gobernación local, a través de la Secretaría de Educación, otorgó aporte a la Asociación de Cooperación Escolar del Colegio Nacional “San Carlos" de este distrito, consistente en la suma de G.50.000.000, que fue destinado para la compra de sillas pedagógicas para  beneficiar a nueve  instituciones educativas del distrito que fueron distribuidos  en  la fecha en el local de una de las instalaciones.
+La Gobernación local, a través de la Secretaría de Educación, otorgó aporte a la Asociación de Cooperación Escolar del Colegio Nacional “San Carlos" de este distrito, consistente en la suma de G.50.000.000, que fue destinado para la compra de sillas pedagógicas para beneficiar a nueve instituciones educativas del distrito que fueron distribuidos en la fecha en el local de una de las instalaciones.
 La adquisición de los mobiliarios se realizó luego de cumplir todas las condiciones exigidas por la Ley General de Presupuesto y la Dirección Administrativa y Finanzas del Gobierno Departamental, según informó el secretario de educación de la gobernación, César Velázquez.
 Entre las instituciones beneficiadas con los aportes aparece el Colegio Nacional San Carlos, Escuela Básica Nro 3275 Don Carlos Antonio Lopez, Escuela Básica Nro 2673 Gral. Patricio Escobar, Escuela Básica Nro 2676 Defensores del Chaco y la Escuela Básica Nro 1499 San Miguel.
 También fueron beneficiadas la Escuela Básica 6627 Ykua Satî, Escuela Básica 3070 Gral. Jose E Diaz, Centro Educativo Ko'ê Pyahu de San Miguel y por último la Escuela Básica Nro 4416 Virgen de Fátima, todas instaladas en el municipio de Unión.
@@ -2123,25 +1916,25 @@ El presidente Mario Abdo Benítez indicó que mediante una reestructuración de 
 También se anunció una serie de modificaciones de plazos y facilidades de pago de impuestos y se plantea regular por un año el uso de royalties a los municipios.
 A nivel tributario, las principales decisiones fueron las de postergar la carga del libro Hechauka, amplía la validez del Certificado de cumplimiento tributario de 30 a 90 días, a fin de que los contribuyentes no tengan problemas en gestionar créditos por ejemplo, también se podrá solicitar el financiamiento sin intereses para el Iragro e Iracis, así también se posterga para el mes de julio el pago del Impuesto a la Renta Empresarial y se reduce el IVA para insumos sanitarios.
 Parlamento del Mercosur declara patrimonio el Botánico y Solar Artigas
-El Parlasur declaró patrimonio natural, cultural,  histórico, arquitectónico y socioambiental del Mercosur el Jardín Botánico de Asunción y el Solar Artigas, actualmente amenazados por la construcción de un viaducto.
+El Parlasur declaró patrimonio natural, cultural, histórico, arquitectónico y socioambiental del Mercosur el Jardín Botánico de Asunción y el Solar Artigas, actualmente amenazados por la construcción de un viaducto.
 La declaración del Parlamento del Mercado Común del Sur insta “a la preservación de ambos a fin de que no sean alterados ni sufran ningún impacto negativo de cualquier índole”, destacando que el Jardín Botánico es un espacio verde ampliamente valorado no solo en nuestro país y es uno de los principales “pulmones de la República del Paraguay y, por ende, de la región”.
 Tras una procesión de la imagen de la Virgen del Rosario por las principales avenidas de esta ciudad, los devotos se congregaron en la plazoleta de la catedral para celebrar la misa central.
 La actividad fue presidida por monseñor Juan Bautista Gavilán y sacerdotes dependientes de la diócesis de Coronel Oviedo.
 Hoy es el día de la Guarania
 La Guarania, el género musical creado por José Asunción Flores en 1925, celebra hoy su día con un acto conmemorativo, una obra de teatro y un festival popular en homenaje a su creador.
-Desde varias instituciones, buscan que el género sea reconocido  como patrimonio por la Unesco.
+Desde varias instituciones, buscan que el género sea reconocido como patrimonio por la Unesco.
 La Plaza de la Guarania “Manuel Ortiz Guerrero-José A. Flores”, ubicada sobre la Avda. Mcal. López y Santa Rosa, será hoy a las 11:00 el escenario de un homenaje al compositor, cuyos restos reposan en el lugar tras su repatriación en 1991.
 El acto contará con la presentación de la Orquesta de Cámara Municipal de Asunción (OCMA), bajo la dirección de Miguel Ángel Echeverría; el cantante Ricardo Flecha y la guitarrista Luz María Bobadilla.
 También actuará la Banda Folklórica Municipal de Asunción, bajo la dirección de Roberto Zaracho.
 También en Punta Karapã (Caballero y Comuneros), frente a la que alguna vez fuera residencia de Flores, se llevará a cabo un Festival Popular, a partir de las 19:00, con acceso libre y gratuito.
 Exdiputado Ocampos, nuevo vice de Tecnologías del MITIC
-Supuestamente exministro   del Interior negoció  US$ 2 millones  a fin de evitar la extradición del “doleiro”, pero Villamayor lo niega.
+Supuestamente exministro del Interior negoció US$ 2 millones a fin de evitar la extradición del “doleiro”, pero Villamayor lo niega.
 Luz verde para el puente internacional en el Chaco
 El Consorcio Prointec fue el encargado de realizar los trabajos de estudio de factibilidad técnica, económica y socio ambiental, diseño final de ingeniería, catastro y fiscalización del futuro puente que unirá al territorio chaqueño con el estado Brasileño de Mato Grosso del Sur.
 También abarca la construcción de obras complementarias como oficinas de entes públicos de control fronterizo, sedes de Aduanas, Migraciones y MOPC.
 El puente atirantado tendrá 630 metros de largo y unirá a esta comunidad del Alto Paraguay, con la localidad brasileña de Puerto Murtinho, será financiado íntegramente con fondos de Itaipú por unos US$ 75 millones.
 Con la entrega de estos trabajos, también se suma el permiso otorgado por la Municipalidad de este distrito, para la construcción del puente internacional, por lo que solo se aguarda que el MOPC inicie el proceso de llamado nacional e internacional para que finalmente se proceda al inicio de esta importante obra, que ayudará a la funcionalidad del corredor Vial Bioceánico en pleno proceso de construcción.
-La Municipalidad de Asunción     debe ser intervenida
+La Municipalidad de Asunción debe ser intervenida
 La exdirectora de Transparencia y Anticorrupción de la Municipalidad asuncena, Carina Benítez, formuló ante el Ministerio Público unas declaraciones de las que surge que el exintendente Mario Ferreiro habría encubierto la comisión de delitos en la Policía Municipal de Tránsito y en el Mercado de Abasto.
 Los agentes se quedaban con gran parte de las multas, mientras en el mercado se cobraba por casillas erigidas en áreas verdes sin que lo recaudado llegara a las arcas municipales.
 JEM pide informe sobre blanqueo de Javier Zacarías y Sandra McLeod
@@ -2317,8 +2110,8 @@ Monseñor Pedro Collar Noguera en gira pastoral visitó, el último fin de seman
 Estuvo por Laureles, Paso de Patria, General José Eduvigis Diaz, Humaitá y Puerto Itá Pirú, entre otras localidades.
 No obstante, añadió que esto está sujeto a la situación sanitaria de cada país de donde provienen los evaluadores, por lo que no se descarta de vuelta otra postergación.
 Divulgan declaraciones de 20 altos funcionarios
-Por  amparo, Contraloría debe publicar bienes de responsables de ejecutar la ley de emergencia.
-Alcanza a ministros, directores  y giradores de los entes incluidos y a proveedores del Estado.
+Por amparo, Contraloría debe publicar bienes de responsables de ejecutar la ley de emergencia.
+Alcanza a ministros, directores y giradores de los entes incluidos y a proveedores del Estado.
 Titulares de IPS, Petropar, STP, MAG, los más acaudalados; disponible en www.abc.com.
 Piden que Mercosur reclame a Brasil la retención de respiradores adquiridos por nuestro país
 Los parlamentarios del Mercosur representantes del Paraguay urgieron al organismo internacional “pronunciarse” y reclamar al Brasil la retención de respiradores adquiridos por nuestro país.
@@ -2347,7 +2140,7 @@ Los camiones de gran porte que transitan por la vía que une Tobatí con Caacup�
 Cada institución que participa de esta reunión presenta su plan de trabajo a ser implementado durante las festividades que se inician el 28 de noviembre con el novenario y que culminan con el octavario, el 15 de diciembre.
 Piden habilitación de pesca deportiva para reactivar economía en Ayolas
 Sectores ligados al rubro turístico de Ayolas, solicitan al Gobierno que se habilite la pesca deportiva para reactivar la economía local.
-La ciudad está muy resentida  económicamente debido a que la mayoría de los pobladores se dedican a la pesca y al turismo, actividades suspendidas debido a la pandemia.
+La ciudad está muy resentida económicamente debido a que la mayoría de los pobladores se dedican a la pesca y al turismo, actividades suspendidas debido a la pandemia.
 Asociaciones de hoteleros y operadores turísticos, comerciantes, guías de pesca, vendedores de carnadas entre otros sectores hicieron llegar una nota al intendente, Carlos Duarte (ANR), donde solicitan que interceda ante los órganos necesarios del Estado, para que se considere de manera especial el caso de Ayolas y se pueda habilitar la pesca deportiva.
 Ministerio de Salud no declarará aún emergencia sanitaria por dengue
 Julio Mazzoleni, titular del Ministerio de Salud y Bienestar Social, afirmó que todavía no decidieron declarar emergencia sanitaria a nivel país por la creciente epidemia del dengue.
@@ -2375,9 +2168,9 @@ Añadió que acompañan el dolor de la familia de la persona fallecida en el eve
 “Acompañamos y manifestamos nuestras sinceras disculpas a las familias quienes se acercaron a la SND para alentar a sus deportistas con el debido respeto a sus rivales”, expresó.
 Recuerdan a la ciudadanía que no habrá buses de larga distancia este fin de semana
 “Las empresas de transporte de pasajeros de media y larga distancia dejarán de operar desde las 00:00 de este sábado hasta las 00:00 del lunes desde Asunción y a la capital, medida que fue adoptada por la Dirección Nacional de Transporte (Dinatran) a fin de dar cumplimiento al Decreto del Poder Ejecutivo N° 3964/20 que establece, la cuarentena social, a fin de prevenir contagios masivos por covid-19.
-Continúan  hoy y se suman los consejos de decoradores.
+Continúan hoy y se suman los consejos de decoradores.
 Mañana se cierran con los tradicionales sorteos.
-La participación es gratuita,  previa inscripción al tel. (021) 415-1236 o al mail marketing@abc.com.py.
+La participación es gratuita, previa inscripción al tel. (021) 415-1236 o al mail marketing@abc.com.py.
 Segundo Congreso de educación, ciencia y cultura
 Este jueves comenzó el segundo Congreso de Educación, Ciencia y Cultura, organizado por la Facultad de Filosofía, filial de la Universidad Nacional de Asunción (UNA), en esta ciudad.
 Uno de los principales disertantes del congreso, el doctor Ismael Pavetti, habló sobre “el pensamiento crítico en la educación e importancia de la filosofía en el desarrollo del pensamiento científico”.
@@ -2469,7 +2262,7 @@ Yolanda Ramírez, quien dio lectura al documento, manifestó que decidió sumars
 En el documento dirigido a las autoridades nacionales, los manifestantes señalan varios desaciertos en las medidas sanitarias impuestas para enfrentar la pandemia de covid-19.
 Afirman que el confinamiento vulnera varios derechos como la posibilidad de trabajar o hacer ejercicio, entre otras limitaciones que afectan el bienestar general de los ciudadanos.
 Además, cuestionan la falta de acceso a la salud para la ciudadanía por la falta de respuestas en los centros asistenciales.
-¿Procesados legislando  en causa propia?
+¿Procesados legislando en causa propia?
 El diputado Ulises Quintana (ANR) y el concejal luqueño Rubén González Chaves (ANR) sufrieron prisión preventiva porque, entre otras cosas, había “elementos de convicción suficientes sobre la existencia de un hecho punible grave”, al decir del art. 242 del Código Procesal Penal.
 En otras palabras, había fuertes indicios de que ambos estaban implicados en graves hechos por los que se les investiga.
 Emprendedores piden que se ratifique versión de Diputados del Fogapy
@@ -2554,7 +2347,7 @@ La anulación se concretó a través de la Resolución Nº 45 que firmó el titu
 El llamado había recibido varios cuestionamientos, porque la institución admitió su incapacidad de administrar estos ingresos (por brindar protección a los vuelos), que representan casi US$ 7 millones al año al ente, de acuerdo con los datos a los que accedió nuestro diario.
 Según documentos, en 2018 se recaudaron US$ 6,9 millones y en el 2019, US$ 6,5 millones.
 Vale señalar además que las aerolíneas solicitaron no modificar las tasas que pagan actualmente por utilizar el espacio aéreo.
-Prueba de fuego para el  Congreso en caso metrobús
+Prueba de fuego para el Congreso en caso metrobús
 Canciller adelanta cierre de embajada en Europa y reducción del personal en consulados
 Esta mañana, el canciller Antonio Rivas se constituyó en el Palacio de Gobierno para una reunión con el equipo que coordina la negociación del Anexo C del tratado de Itaipú.
 Al respecto, señaló que en el encuentro se trató de ver aspectos jurídicos que se deben tener en cuenta para la negociación.
@@ -2571,7 +2364,7 @@ Esta labor implica controles, desvíos e intervenciones en puntos claves entre S
 IPS finalmente ordena investigar compra a empresas vinculadas a medicamentos sospechosos
 El titular del Instituto de Previsión Social (IPS), Andres Gubetich “encomendó una investigación a todos los procesos licitatorios en los cuales hayan tenido participación las firmas EUROTEC S.A. e IMEDIC S.”, informaron hoy a través de un comunicado.
 La disposición se dio recién ahora, luego de que medicamentos quedaron en observación debido a que una empresa internacional confirmó que ellos no vendieron esa cantidad de insumos a estas firmas cuestionadas.
-Quieren “salvar” al Paraguay    matando a gente inocente
+Quieren “salvar” al Paraguay matando a gente inocente
 La banda criminal Ejército del Pueblo Paraguayo (EPP) ha vuelto a demostrar su infinito desprecio por la vida y la dignidad humanas, al anunciar que asesinaría al exvicepresidente de la República Óscar Denis –secuestrado junto con su empleado, el nativo Adelio Mendoza– si sus demandas no fueran satisfechas.
 El plazo para el cumplimiento de una de ellas –la liberación de los condenados Carmen Villalba y Alcides Oviedo Brítez– venció anoche, en tanto que la otra exigencia –la entrega de dos millones de dólares en alimentos a cuarenta comunidades– tenía que ser atendida dentro de ocho días.
 Si en este plazo no se cumplieran sus demandas, el exvicepresidente, que requiere de medicamentos para cuidar su delicada salud, sería “fusilado”, según el comunicado del EPP.
@@ -2597,7 +2390,7 @@ Se puso en marcha ayer en “Arena Pynandi”, el flamante estadio construido en
 Se disputaron los cuatro primeros encuentros y en el estelar, la selección nacional cayó en un electrizante partido contra Japón por 5-4.
 El gol del triunfo nipón llegó cuando se agotaba el tiempo reglamentario.
 La fiesta continuará hasta el 1 de diciembre.
-Vergonzosos representantes políticos    degradan importantes instituciones
+Vergonzosos representantes políticos degradan importantes instituciones
 Muchos de los candidatos que nos ofrecen los partidos políticos para ejercer cargos electivos son una verdadera vergüenza.
 Algunos parecen analfabetos funcionales, pero sancionan leyes o representan al Paraguay en organismos internacionales.
 La cuestión es ubicar a los amigos o a peones que pueden hacer el trabajo sucio cuando se los necesita, aunque ignoren las funciones que van a ejercer.
@@ -2629,10 +2422,10 @@ La asistencia estará disponible de lunes a sábados, de 8:30 a 11:30 y de 15:00
 En este punto amplió contando que muchas veces los directores de las penitenciarías recurren a los líderes de esta organización para sostener la alimentación y los insumos básicos para los presos.
 "El Estado paraguayo no tiene alimento para los más de 12.000 presos que hay en el país, mientras eso siga ocurriendo, el PCC seguirá negociando", apuntó.
 Asesor dice que Euclides sabía de los pasaportes
-Según Anastacio Ojeda,  ministro sabía que a Ronaldinho le habían dado documentos falsos.
+Según Anastacio Ojeda, ministro sabía que a Ronaldinho le habían dado documentos falsos.
 Euclides lo niega y afirma que se enteró el día que se produjo el incidente en el aeropuerto.
 A través de abogados, Dalia López ahora ad- mite que gestionó papeles que “creía legales”.
-Se habla  de una reunión en un estudio jurídico con un pago de US$ 25.000 para “destrabar”.
+Se habla de una reunión en un estudio jurídico con un pago de US$ 25.000 para “destrabar”.
 Un paso firme en la búsqueda de la anhelada transparencia
 Dos días después de que el Congreso haya resuelto despenalizar la falsedad de las declaraciones juradas de bienes y rentas de quienes ejercen una función pública, el pleno de la Corte Suprema de Justicia defendió el derecho a la información al dictar un fallo tan favorable a la transparencia como contrario a la corrupción.
 Alegra constatar que, pese a todo, aún existen magistrados que amparan al ciudadano con la Constitución en la mano, frente a quienes tratan de impedir que sus latrocinios salgan a la luz.
@@ -2672,7 +2465,7 @@ Camila Giménez, de la Federación de Estudiantes Fenaes, considera que “lo m�
 Afirma que este año fue una “tortura” para los estudiantes y que el aty guasu fue una estafa porque las autoridades del MEC no escuchan.
 Esposa de Efraín calificó de “inmoral” la prisión del dirigente del PLRA
 Mirian Irún de Alegre, esposa del presidente del Partido Liberal Radical Auténtico (PLRA), Efraín Alegre, calificó como una “inmoralidad” lo que está pasando con el líder opositor, “preso por una justicia sometida a intereses políticos”.
-Cuestionó que este Gobierno se “tragó” US$  1.600 millones aprobados como préstamos durante la emergencia sanitaria y que la gente tenga que mendigar medicamentos.
+Cuestionó que este Gobierno se “tragó” US$ 1.600 millones aprobados como préstamos durante la emergencia sanitaria y que la gente tenga que mendigar medicamentos.
 Irún de Alegre se reunió con referentes de su partido en el comité del PLRA para denunciar lo que calificó como “una persecución política de la que es víctima el presidente del partido”, y sentenció que con sus acciones este Gobierno pone en riesgo la democracia.
 También realizó un llamado a defender los derechos ciudadanos.
 Y él dijo: Mamá, estoy en casa.
@@ -2763,7 +2556,7 @@ Pero, de repente, nos llamaron para mirar lo que estaba volando.
 Se suponía que debíamos mirar el avión.
 Se suponía que debíamos mirar lo que estaba volando.
 Nos dijeron que no miráramos afuera.
-Él rasgaba el papel y lo colocaba en la arena,  encendía fuego y lo quemaba en el cenicero de arena, y luego removía las cenizas así.
+Él rasgaba el papel y lo colocaba en la arena, encendía fuego y lo quemaba en el cenicero de arena, y luego removía las cenizas así.
 Él estaba demasiado asustado como para quemar nada, así que simplemente lo intentó.
 Él quemaría el papel.
 Él escribiría un sueño en el papel y luego lo quemaria.
@@ -2831,7 +2624,7 @@ No volvió a decir una hora, así que me hizo ir allí estresado, y ni siquiera 
 Yo estaba preocupado porque no sabía a qué hora era.
 Me preocupaba perderme el espectáculo porque no sabía qué hora era.
 No estaba preocupado en absoluto, ocurriría cuando ocurriera.
-Él es de Grecia y él es de un pequeño pueblo en Grecia llamado Tokalleka, vino a América, creo que fue en 1969 o 1970  y se casó pronto.
+Él es de Grecia y él es de un pequeño pueblo en Grecia llamado Tokalleka, vino a América, creo que fue en 1969 o 1970 y se casó pronto.
 Él es un hombre griego que no habla inglés.
 Es un hombre griego.
 Él es de Irlanda.
@@ -2875,7 +2668,7 @@ Seguía siendo una zona cultural, pero los suburbios aún eran la forma dominant
 Todo ello era muy urbano.
 La mayor parte de la zona estaba llena de casas baratas.
 La mayor parte de la zona era zona residencial periférica.
-Y entonces le escuché irse, por lo que aún  estoy acabando lo que tenía que hacer.
+Y entonces le escuché irse, por lo que aún estoy acabando lo que tenía que hacer.
 Estoy haciendo lo que debo hacer hoy.
 Estoy haciendo los trabajos importantes que me asignaron esta mañana.
 No voy a molestarme en hacer esto.
@@ -3139,7 +2932,7 @@ ajá, crees que estás eh eh decepcionado o contento con eh eh el trabajo de las
 ¿Estás contento con la cobertura de las noticias de la red?
 Supongo que nunca ves las noticias de la red.
 Creo que las redes le dan vuelta a las noticias para hacerte pensar lo que quieren que pienses.
-Sí, no lo hago bien, ¿qué es lo que pasó  en la derrota en diciembre pasado? ¿o por cuántos votos? ¿o por unos pocos cientos de votos?
+Sí, no lo hago bien, ¿qué es lo que pasó en la derrota en diciembre pasado? ¿o por cuántos votos? ¿o por unos pocos cientos de votos?
 Fue rechazado porque la gente no quería salir a votar.
 Perdió no por muchos votos.
 Pasó por un margen de 99 %.
@@ -3387,7 +3180,7 @@ Tu apoyo a Goodwill proveerá formación profesional y servicio de colocación p
 La gente del centro de Indiana nunca recibe entrenamiento laboral.
 Supporting Goodwill beneficiará a la gente de Indiana.
 El respaldo a Goodwill reducirá la tasa de desempleo.
-Desde un comienzo modesto hasta su rango actual como uno de los mejores centros médicos de la nación, el único colegio médico de Indiana muestra  muy orgulloso su patrimonio.
+Desde un comienzo modesto hasta su rango actual como uno de los mejores centros médicos de la nación, el único colegio médico de Indiana muestra muy orgulloso su patrimonio.
 Indiana tiene al menos veinte escuelas de medicina excelentes.
 El estado de Indiana tiene solo una escuela de medicina.
 No habrá otra escuela de medicina en Indiana durante los próximos cinco años.
@@ -3451,7 +3244,7 @@ El último domingo, 18 de junio, llovió y redujo drásticamente la asistencia a
 No ha llovido en 3 años.
 El pasado domingo llovieron 17 pulgadas.
 Llovió el domingo pasado.
-Lo que comenzó como un grupo itinerante de actores en 1973 que actuó para estudiantes en ciudades como Gary , Elkhart y Terre Haute,  el programa educativo de la IRT hoy en día
+Lo que comenzó como un grupo itinerante de actores en 1973 que actuó para estudiantes en ciudades como Gary , Elkhart y Terre Haute, el programa educativo de la IRT hoy en día
 No había actores en Indiana en los años 70.
 Algunos actores ganadores del Oscar recorrieron Indiana en 1973.
 Algunos actores hicieron una gira en Indiana en 1973.
@@ -3627,7 +3420,7 @@ Si tiene alguna pregunta o sugerencia, llámeme hoy al (924-5471) o llame a Bob 
 Bob Lovell puede responder preguntas.
 Bob Lovell ya no está asociado a esto.
 Bob Lovell está trabajando en la campaña para el año que viene.
-Parte de los esfuerzos del Centro es atender directamente las necesidades de las comunidades  capacitando a las personas que son responsables de mantener la filantropía en las bases.
+Parte de los esfuerzos del Centro es atender directamente las necesidades de las comunidades capacitando a las personas que son responsables de mantener la filantropía en las bases.
 El Centro realmente quiere ayudar a la comunidad.
 El centro se enfoca en ayudar a otros continentes.
 El centro quiere ayudar a los pobres de la comunidad.
@@ -3671,9 +3464,9 @@ Además, tiene la satisfacción de saber que sus colegas están siendo instados 
 Se disuade a todo el mundo a emular tu terrible juicio.
 Tus colegas están felices de emular tu buen juicio.
 Se les pide a sus colegas que sigan su juicio.
-Angelo Giuseppe Roncalli nació el día 25 de noviembre del año 1881 en Sotto il Monte, provincia de Bérgamo, Italia, siendo el cuarto de trece  hermanos.
+Angelo Giuseppe Roncalli nació el día 25 de noviembre del año 1881 en Sotto il Monte, provincia de Bérgamo, Italia, siendo el cuarto de trece hermanos.
 Ese mismo día fue bautizado.
-En el año 1892 ingresó en el Seminario de Bérgamo, donde estudió humanidades,  filosofía y hasta el segundo año de teología.
+En el año 1892 ingresó en el Seminario de Bérgamo, donde estudió humanidades, filosofía y hasta el segundo año de teología.
 Allí, con catorce años, empezó a redactar unos apuntes espirituales que le acompañaron, a lo largo de su vida, y que fueron recogidos en “Diario de un alma”.
 El día 1 de marzo del año 1896, el padre espiritual del Seminario de Bérgamo, Luigi Isacchi, lo admitió en la Orden Franciscana Seglar, cuya regla profesó el día 23 de mayo del año 1897.
 De 1901 a 1905 fue alumno del Pontificio Seminario Romano.
@@ -4109,30 +3902,30 @@ pobre oh dios mío.
 Desarrollo .
 Suryavarman II, rey del Imperio Jemer de 1113 a 1150.
 En la década de 1980 el significado cambió para describir el estilo de vida de los jóvenes adinerados.
-Esta guía tiene como propósito establecer orientaciones generales para el análisis de la terminología guaraní existente en el campo de la informática e internet recopilada, y la traducción al guaraní de nuevos términos de los ámbitos referidos, sea del castellano como del inglés, en el marco del proyecto “Compilar la terminología guaraní existente y elaborar nuevos términos en el ámbito de la informática e internet”, financiado por el Consejo Nacional de Ciencia y Tecnología (CONACYT) y desarrollado por la Fundación Yvy Marãeꞌỹ  .
-La misma ha establecido algunas normativas ortográficas básicas, pero todavía no se ha abocado a otros aspectos de la lengua, como el área terminológica  .
-Esta guía es una propuesta del Equipo Técnico que lleva adelante la investigación; la misma es resultado de jornadas de trabajo y consensos logrados en el seno del mencionado grupo  .
-En Paraguay es hablado por más de 80 % de la población; cuenta con cerca de 10.000.000 (diez millones) de hablantes, tanto en el Paraguay como en otros países de la región y en la diáspora paraguaya  .
-La variedad de la lengua  .
-El idioma guaraní tiene más de 50 variedades dialectales; la más extendida y de mayor uso es la hablada en Paraguay, denominada guaraní paraguayo  .
-Asimismo, este cuerpo colegiado estableció el uso de las letras D d, F f, y LL ll para escribir palabras provenientes de otras lenguas, una vez reglamentadas  .
-Las lenguas no admiten construcciones cacofónicas, y para evitarlas en algunos casos recurren a acomodaciones lingüísticas que no generan variaciones de significados, pero son necesarios  .
-La morfosintaxis  .
-Por ejemplo, Internet de mi casa se dirá: Che rogapegua Internet  .
-En los análisis de los términos ya traducidos, como en los términos de informática e internet a ser desarrollados en el marco de este proyecto, se utilizarán estas normas oficiales de la ortografía y la gramática guaraní y otras normativas que se vienen utilizando para la escritura de la lengua  .
-Los calcos sintácticos y pragmáticos, muy recurrentes en las traducciones al guaraní realizadas en distintos medios académicos, además de afectar el genio del idioma, crea un guaraní artificial que ni los propios hablantes de la lengua entienden  .
-Para los botones u opciones de menú de las distintas herramientas de internet, el uso de verbos es frecuente  .
-Se puede observar que mbaꞌapohára no lleva la partícula de número plural correspondiente, que sería kuéra, porque el contexto no lo exige, dado que el pronombre personal de primera persona incluyente ñande pluraliza el sujeto de la oración  .
-Uso de formas plenas  .
-Los acrónimos, abreviaturas y siglas no serán traducidos  .
-Uso de neologismos y términos en desuso  .
-Conectores como ỹrõ o térã (conector disyuntivo o), rupi o haguére (conector causal porque), sustantivos como jokupyty (solidaridad), pojoapy (herramientas), o vocabularios de uso familiar como jarýi (abuela), temiarirõ (nieto), etc. ya no se usan en el guaraní de la calle, pero sí en las instituciones educativas, en los medios de comunicación con programas en guaraní, y en boca de los estudiosos de la lengua  .
-En las creaciones neológicas y para los casos de resemantización de vocabularios propios del guaraní, se tendrán en cuenta los factores culturales, puesto que una lengua cataliza culturas y formas de ser y estar en el mundo de una determinada sociedad  .
-La lengua guaraní es vector en gran medida del ethos guaraní y paraguayo  .
-Los números  .
-La diferencia radica en que ellos sirven para designar conceptos propios de la comunicación especializada  .
-Teniendo en cuenta las orientaciones planteadas en esta guía, los traductores tendrán en cuenta estos criterios para analizar los términos traducidos, como también para la traducción de los nuevos productos terminológicos  .
-Asimismo, tendrán jornadas de socialización de experiencias con responsables de procesos de normalización terminológica, como la experiencia del Ministerio de Educación y Cultura (MEC)1 en el sistema educativo, el Ateneo de Lengua y Cultura Guaraní, la Fundación Yvy Marãeꞌỹ, Academia de la Lengua Guaraní y de la Secretaría de Políticas Lingüísticas  .
+Esta guía tiene como propósito establecer orientaciones generales para el análisis de la terminología guaraní existente en el campo de la informática e internet recopilada, y la traducción al guaraní de nuevos términos de los ámbitos referidos, sea del castellano como del inglés, en el marco del proyecto “Compilar la terminología guaraní existente y elaborar nuevos términos en el ámbito de la informática e internet”, financiado por el Consejo Nacional de Ciencia y Tecnología (CONACYT) y desarrollado por la Fundación Yvy Marãeꞌỹ .
+La misma ha establecido algunas normativas ortográficas básicas, pero todavía no se ha abocado a otros aspectos de la lengua, como el área terminológica .
+Esta guía es una propuesta del Equipo Técnico que lleva adelante la investigación; la misma es resultado de jornadas de trabajo y consensos logrados en el seno del mencionado grupo .
+En Paraguay es hablado por más de 80 % de la población; cuenta con cerca de 10.000.000 (diez millones) de hablantes, tanto en el Paraguay como en otros países de la región y en la diáspora paraguaya .
+La variedad de la lengua .
+El idioma guaraní tiene más de 50 variedades dialectales; la más extendida y de mayor uso es la hablada en Paraguay, denominada guaraní paraguayo .
+Asimismo, este cuerpo colegiado estableció el uso de las letras D d, F f, y LL ll para escribir palabras provenientes de otras lenguas, una vez reglamentadas .
+Las lenguas no admiten construcciones cacofónicas, y para evitarlas en algunos casos recurren a acomodaciones lingüísticas que no generan variaciones de significados, pero son necesarios .
+La morfosintaxis .
+Por ejemplo, Internet de mi casa se dirá: Che rogapegua Internet .
+En los análisis de los términos ya traducidos, como en los términos de informática e internet a ser desarrollados en el marco de este proyecto, se utilizarán estas normas oficiales de la ortografía y la gramática guaraní y otras normativas que se vienen utilizando para la escritura de la lengua .
+Los calcos sintácticos y pragmáticos, muy recurrentes en las traducciones al guaraní realizadas en distintos medios académicos, además de afectar el genio del idioma, crea un guaraní artificial que ni los propios hablantes de la lengua entienden .
+Para los botones u opciones de menú de las distintas herramientas de internet, el uso de verbos es frecuente .
+Se puede observar que mbaꞌapohára no lleva la partícula de número plural correspondiente, que sería kuéra, porque el contexto no lo exige, dado que el pronombre personal de primera persona incluyente ñande pluraliza el sujeto de la oración .
+Uso de formas plenas .
+Los acrónimos, abreviaturas y siglas no serán traducidos .
+Uso de neologismos y términos en desuso .
+Conectores como ỹrõ o térã (conector disyuntivo o), rupi o haguére (conector causal porque), sustantivos como jokupyty (solidaridad), pojoapy (herramientas), o vocabularios de uso familiar como jarýi (abuela), temiarirõ (nieto), etc. ya no se usan en el guaraní de la calle, pero sí en las instituciones educativas, en los medios de comunicación con programas en guaraní, y en boca de los estudiosos de la lengua .
+En las creaciones neológicas y para los casos de resemantización de vocabularios propios del guaraní, se tendrán en cuenta los factores culturales, puesto que una lengua cataliza culturas y formas de ser y estar en el mundo de una determinada sociedad .
+La lengua guaraní es vector en gran medida del ethos guaraní y paraguayo .
+Los números .
+La diferencia radica en que ellos sirven para designar conceptos propios de la comunicación especializada .
+Teniendo en cuenta las orientaciones planteadas en esta guía, los traductores tendrán en cuenta estos criterios para analizar los términos traducidos, como también para la traducción de los nuevos productos terminológicos .
+Asimismo, tendrán jornadas de socialización de experiencias con responsables de procesos de normalización terminológica, como la experiencia del Ministerio de Educación y Cultura (MEC)1 en el sistema educativo, el Ateneo de Lengua y Cultura Guaraní, la Fundación Yvy Marãeꞌỹ, Academia de la Lengua Guaraní y de la Secretaría de Políticas Lingüísticas .
 Abrir
 Abrir carpeta contenedora
 Abrir el marco en una ventana nueva
@@ -4414,14 +4207,14 @@ A
 Ahora eres amigo de (*).
 Puedes ver el grupo en
 Puedes iniciar la interacción dentro del grupo accediendo al enlace siguiente
-Hola,  te ha etiquetado en una foto.
-Hola,  te ha dejado un mensaje en el muro
+Hola, te ha etiquetado en una foto.
+Hola, te ha dejado un mensaje en el muro
 La ubicación del artículo reportado se pueden encontrar a continuación
 Actualmente no tienes ningún mensaje
 No puedes enviarte mensajes tu mismo
 Configura quienes pueden ver tu información
 Solo yo
-Por favor  ingrese con su correo electronico o usuario y contraseña
+Por favor ingrese con su correo electronico o usuario y contraseña
 Un nuevo usuario se ha registrado en.
 El correo ya existe. Por favor elíja una dirección de correo diferente
 Cargar cola
@@ -4662,11 +4455,11 @@ Trabaja con universidades e institutos de investigación líderes, funcionando c
 El Instituto para el Estudio Avanzado de la Sostenibilidad de la Universidad de las Naciones Unidas (UNU-IAS) es un instituto líder en la investigación y la enseñanza del desarrollo orientado a la política desde sus dimensiones sociales, económicas y ambientales .
 Tiene base central en Tokio, Japón, y coordina la Red Global de RCE .
 El UNU-IAS se centra actualmente en tres áreas temáticas principales: - Sociedades sostenibles - Capital natural y biodiversidad - Cambio global y resiliencia
-Los Centros Regionales de Educación (RCE) actúan como brazos de articulación e implementación en el territorio  .
-Están organizados bajo una Red Global (RCE Network) actualmente conformada por 165 Centros Regionales en las Américas, Europa, Asia-Pacífico y África  .
-El propósito de los RCE es articular los desafíos globales, regionales y locales del Desarrollo Sostenible  .
-A su vez, los RCE trabajan en la implementación del Programa de Acción Mundial (GAP) sobre Educación para el Desarrollo Sostenible (EDS) junto a UNESCO y en el logro de los Objetivos de Desarrollo Sostenible (ODS) de la Agenda 2030  .
-surge a finales de 2015 para contribuir al logro de los Objetivos de Desarrollo Sostenible (ODS) en la región desde una perspectiva multicultural y plurilingüística (haciendo de las lenguas más representativas de la diversidad de su territorio castellano, portugués, guaraní y quechua sus idiomas institucionales oficiales)  .
+Los Centros Regionales de Educación (RCE) actúan como brazos de articulación e implementación en el territorio .
+Están organizados bajo una Red Global (RCE Network) actualmente conformada por 165 Centros Regionales en las Américas, Europa, Asia-Pacífico y África .
+El propósito de los RCE es articular los desafíos globales, regionales y locales del Desarrollo Sostenible .
+A su vez, los RCE trabajan en la implementación del Programa de Acción Mundial (GAP) sobre Educación para el Desarrollo Sostenible (EDS) junto a UNESCO y en el logro de los Objetivos de Desarrollo Sostenible (ODS) de la Agenda 2030 .
+surge a finales de 2015 para contribuir al logro de los Objetivos de Desarrollo Sostenible (ODS) en la región desde una perspectiva multicultural y plurilingüística (haciendo de las lenguas más representativas de la diversidad de su territorio castellano, portugués, guaraní y quechua sus idiomas institucionales oficiales) .
 6): “Para 2030, reducir sustancialmente la proporción de jóvenes que no están empleados y no cursan estudios ni reciben capacitación” .
 Objetivo 12: Producción y consumo responsable (Meta 12 .
 8): “Para 2030, velar por que las personas de todo el mundo tengan información y conocimientos pertinentes para el desarrollo sostenible y los estilos de vida en armonía con la naturaleza” .
@@ -4707,27 +4500,27 @@ Tal es el caso de las herramientas de traducción asistida por computadora (abre
 El paulatino ingreso de las lenguas nativas de las Américas en los mercados de servicios lingüísticos se verá beneficiado de esta tendencia, en la medida en que los traductores se preparen para utilizar estos programas informáticos .
 También ha organizado talleres de capacitación en traducción asistida y una conferencia para el portal ProZ.com .
 En 2011 llegó a Paraguay para dictar un seminario sobre traducción, tecnologías y servicios lingüísticos .
-El proyecto TSG tiene como objetivos:  .
+El proyecto TSG tiene como objetivos: .
 • Ayudar a traductores a traducir documentos de un idioma privilegiado (IP) a un idioma minorizado (IM)
-• Crear (o aumentar) memorias de traducción del IP al IM  .
-TSG realiza la traducción de segmentos, no de oraciones enteras  .
-Ofrece sugerencias múltiples para la traducción de cada segmento de una oración traducida y la posibilidad de rechazar todas las sugerencias e introducir una traducción totalmente diferente  .
-Registra las traducciones hechas por usuarios en memorias de traducción  .
-Los recursos necesarios para la implementación de TSG para un par de idiomas incluyen un diccionario digital, un analizador morfológico del idioma fuente, un generador morfológico del idioma meta, y una descripción de las mayores diferencias gramaticales de los idiomas  .
-Mainumby  .
-Mainumby es una implementación en desarrollo del marco TSG para la traducción del castellano al guaraní  .
-Se basa en recursos que estaban disponibles en el año 2015 al principio del proyecto  .
-Componentes y procesamiento de Mainumby  .
-Mainumby consiste en un léxico, un conjunto de reglas de transformación, un analizador morfológico del castellano, un generador morfológico del guaraní, y el algoritmo que realiza el procesamiento de traducción  .
-El componente central del sistema es el léxico  .
-Las entradas en el léxico son segmentos generalizados (SG); a través de ellos se realizan traducciones de palabras, frases fijas, raíces, y frases más complejas, y también reglas de concordancia  .
-Por ejemplo, el SG mostrado en la Figura 9 contiene reglas de concordancia estipulando que el sujeto, el tiempo, y la negación del verbo se copie del castellano al guaraní  .
-De esta manera, este SG se puede aplicar no solo a la traducción de la frase mostrada en la Figura 6, se burla del presidente, sino también a miles de otras posibles frases como me burlaba del profesor y no se van a burlar de nadie  .
-Es en este sentido que un SG es “generalizado”  .
-Otro componente consiste en reglas de transformación morfosintáctica a través de las que frases castellanas se guaranizan en palabras guaraníes  .
-La Figura 10 muestra un ejemplo, una regla que busca una secuencia consistiendo en no y cualquier verbo, anula la palabra no, y agrega la característica +neg al verbo  .
-Finalmente, el sistema depende de un analizador morfológico de verbos, sustantivos, y adjetivos castellanos y un generador morfológico de verbos, sustantivos, y adjetivos guaraníes  .
-En el proceso de construcción del bárbaro colonial, puede identificarse un conjunto de representaciones que tienen su punto de anclaje en el antiguo imaginario de la barbarie  .
+• Crear (o aumentar) memorias de traducción del IP al IM .
+TSG realiza la traducción de segmentos, no de oraciones enteras .
+Ofrece sugerencias múltiples para la traducción de cada segmento de una oración traducida y la posibilidad de rechazar todas las sugerencias e introducir una traducción totalmente diferente .
+Registra las traducciones hechas por usuarios en memorias de traducción .
+Los recursos necesarios para la implementación de TSG para un par de idiomas incluyen un diccionario digital, un analizador morfológico del idioma fuente, un generador morfológico del idioma meta, y una descripción de las mayores diferencias gramaticales de los idiomas .
+Mainumby .
+Mainumby es una implementación en desarrollo del marco TSG para la traducción del castellano al guaraní .
+Se basa en recursos que estaban disponibles en el año 2015 al principio del proyecto .
+Componentes y procesamiento de Mainumby .
+Mainumby consiste en un léxico, un conjunto de reglas de transformación, un analizador morfológico del castellano, un generador morfológico del guaraní, y el algoritmo que realiza el procesamiento de traducción .
+El componente central del sistema es el léxico .
+Las entradas en el léxico son segmentos generalizados (SG); a través de ellos se realizan traducciones de palabras, frases fijas, raíces, y frases más complejas, y también reglas de concordancia .
+Por ejemplo, el SG mostrado en la Figura 9 contiene reglas de concordancia estipulando que el sujeto, el tiempo, y la negación del verbo se copie del castellano al guaraní .
+De esta manera, este SG se puede aplicar no solo a la traducción de la frase mostrada en la Figura 6, se burla del presidente, sino también a miles de otras posibles frases como me burlaba del profesor y no se van a burlar de nadie .
+Es en este sentido que un SG es “generalizado” .
+Otro componente consiste en reglas de transformación morfosintáctica a través de las que frases castellanas se guaranizan en palabras guaraníes .
+La Figura 10 muestra un ejemplo, una regla que busca una secuencia consistiendo en no y cualquier verbo, anula la palabra no, y agrega la característica +neg al verbo .
+Finalmente, el sistema depende de un analizador morfológico de verbos, sustantivos, y adjetivos castellanos y un generador morfológico de verbos, sustantivos, y adjetivos guaraníes .
+En el proceso de construcción del bárbaro colonial, puede identificarse un conjunto de representaciones que tienen su punto de anclaje en el antiguo imaginario de la barbarie .
 Para los cronistas y frailes, los indios tenían grandes estigmas propios: idolatría, sacrificio humano, canibalismo, brujería, poligamia, incesto, sodomía .
 El bárbaro podía dejar de serlo mediante la conversión religiosa .
 Luego, la antropología evolucionista propuso la idea del desarrollo progresivo de las civilizaciones y el fundamento de la verdad en la razón, la ciencia y la técnica .
@@ -4811,7 +4604,7 @@ Matthew Hedges es tendencia en redes sociales y utiliza permanentemente estos es
 Presentaron investigación sobre el guaraní en el diseño gráfico.
 Conocido comunicador argentino fue distinguido por promover y valorar el guaraní.
 La Secretaría de Políticas Lingüísticas (SPL) fue invitada a participar de la conferencia “El arte de enriquecer la noticia” que estuvo a cargo del conocido periodista deportivo de Argentina, Christian Martin. En la ocasión, la SPL le entregó un reconocimiento por su conducta y actitud ejemplares al utilizar en guaraní a través de sus redes sociales..
-La ministra de la SPL, Ladislaa Alcaraz de Silvero, protagonizó la entre de distinción y destacó la actitud ejemplar del comunicador.  Expresó
+La ministra de la SPL, Ladislaa Alcaraz de Silvero, protagonizó la entre de distinción y destacó la actitud ejemplar del comunicador. Expresó
 Christian Martin es un destacado periodista deportivo de Argentina, quien habitualmente a través de sus redes sociales, especialmente desde el Twitter, publica breves mensajes en guaraní, especialmente cuando se refiere al Paraguay, país que respeta y admira mucho, según sus propias declaraciones..
 La conferencia “El arte de enriquecer la noticia” se realizó en la noche de la víspera, en el Dazzler Hotel de Asunción..
 Conforman en Paraguay la primera academia de lengua indígena.
@@ -4929,8 +4722,7 @@ Guaraní Médico” estuvo a cargo de la ministra de la Secretaría de Política
 La presentación se realizó en el salón de eventos de la Facultad de Medicina (UNA), ante un auditorio lleno de estudiantes, docentes e invitados especiales.
 Aprueban la Gramática Oficial de la Lengua Guaraní.
 La Academia de Lengua Guaraní (AGL), órgano rector de la normativización de la lengua, en una histórica asamblea aprobó la Gramática Oficial de la Lengua Guaraní, el pasado viernes 22 de junio.
-BASES Y CONDICIONES DEL CONCURSO
-  1-La Academia Paraguaya de la Lengua Española convoca al “Premio Academia Paraguaya de la Lengua Española de investigación filológica”, año 2018.
+BASES Y CONDICIONES DEL CONCURSO 1-La Academia Paraguaya de la Lengua Española convoca al “Premio Academia Paraguaya de la Lengua Española de investigación filológica”, año 2018.
 2-El premio consistirá en una dotación económica de diez millones de guaraníes, (G. 10.000.000), y un diploma conmemorativo.
 3-Podrán ser candidatas al “Premio Academia Paraguaya de la Lengua Española de investigación filológica” todas las obras de investigación filológica en castellano, con un mínimo de 25 páginas, escritas en papel A4, a doble espacio, cuerpo 12, debidamente encuadernadas.
 4-Las obras deben ser presentadas con seudónimo en sobre cerrado, dentro del cual se incluirá otro sobre cerrado con los siguientes datos del autor: Nombre y apellido, Número de Cédula de Identidad, Dirección y Teléfono.
@@ -5000,3 +4792,523 @@ La rúbrica del acuerdo entre ambas instituciones será protagonizada por la min
 Será este viernes 8 de setiembre a las 18:00 horas en el salón de eventos del Rectorado de la mencionada universidad.
 A partir del acuerdo interinstitucional se trabajará en la incorporación de la lengua guaraní como lengua enseñada y de enseñanza en las distintas carreras; además, se planificará actividades de formación y capacitación a autoridades regionales, funcionarios, docentes, estudiantes, etc., para la incorporación del guaraní en las distintas instancias de interacción social.
 El acuerdo también contempla desarrollar investigaciones en el ámbito de la lingũística, como también la promoción y documentación de las lenguas oficiales, de los pueblos indígenas y de las lenguas extranjeras.
+La Subcomisión de Información, Comunicación y Lengua de Señas de la Comisión Nacional por los Derechos de las Personas con Discapacidad (Conadis) sesionó por segunda vez este lunes a fin de analizar las líneas estratégicas de acciones para el resto de este año 2017.
+La Subcomisión, liderada por la ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, convocó nuevamente a los referentes de las distintas instituciones públicas y de las organizaciones de la sociedad civil.
+En la misma sesión, trataron temas referentes a la propuesta de un programa de curso básico de lengua de señas y el análisis del reglamento interno de la Subcomisión.
+La convocatoria tuvo lugar en la sala de reuniones del Centro de Acceso a la Información CAI, en la Biblioteca Central de la Universidad Nacional de Asunción.
+EXITOSA PRIMERA JORNADA DEL SEMINARIO SOBRE INVESTIGACIÓN LINGŨÍSTICA EN PARAGUAY.
+Este jueves inició la primera jornada del II Seminario Taller “Investigación Lingũística en Paraguay” con una alta convocatoria de público y los expertos lingũistas, nacionales y extranjeros, que compartieron sus saberes en las dos mesas temáticas desarrolladas.
+La apertura del evento estuvo a cargo de la ministra de la Secretaría de Políticas, Ladislaa Alcaraz de Silvero; el Director del Centro de Estudios Antropológicos de la Universidad Católica, Nilo Zárate; y el lingũista de la Universidad Ottawa de Canadá, Andrés Salanova.
+Luego, el lingũista Andrés Salanova tuvo a su cargo la conferencia central sobre “Problemas y perspectivas para la lingũística actual”.
+Y posteriormente varios expertos expusieron sobre la variación y cambio en el guaraní, y las perspectivas para la documentación y descripción de lenguas minoritarias en Paraguay.
+El evento culminó con la presentación del libro “Inflectional Morphology in the Zamucoan Languages” a cargo del autor, Luca Ciucci.
+Mañana viernes continúa el Seminario con la segunda y última jornada, donde expertos discutirán sobre el multilingũismo y lenguas en contacto y las perspectivas para la formación de lingũistas en Paraguay.
+INICIÓ EL CURSO DE GUARANÍ COMUNICATIVO PARA SERVIDORES PÚBLICOS.
+Este miércoles inició el Curso de Guaraní Comunicativo para servidores públicos que ofrece de manera conjunta la Secretaría de Políticas Lingũísticas (SPL) y la Secretaría de la Función Pública (SFP), desde la Dirección Nacional de la Administración Pública del Paraguay (INAPP).
+Los ministros de la SPL y SFP, Ladislaa Alcaraz de Silvero y Humberto Peralta respectivamente, dieron las palabras de apertura al curso y destacaron el interés del Estado paraguayo de contar con servidores capacitados en ambas lenguas oficiales, guaraní y castellano, para una mejor atención al público.
+El objetivo de la capacitación es que, al culminar el curso que tiene una duración de 40 horas, los participantes puedan expresarse con suficiencia en el idioma guaraní; asimismo, tomar conciencia de la riqueza multicultural con la que cuenta el país.
+ORGANIZAN II SEMINARIO-TALLER SOBRE INVESTIGACIÓN LINGŨÍSTICA EN PARAGUAY.
+Este jueves 20 y viernes 21 de julio se realizará el II Seminario Taller “Investigación Lingũística en Paraguay” con el objetivo de presentar y discutir una serie de perspectivas para la lingũística en el Paraguay.
+El evento es organizado por la Secretaría de Políticas Lingũísticas (SPL), el Centro de Estudios Antropológicos de la Universidad Católica (CEADUC) y el lingũista Andrés Salanova; con el apoyo de la Organización de Estados Iberoamericanos (OEI).
+Está dirigido a investigadores vinculados al ámbito lingũístico, académico, y a los interesados en general.
+Tiene como principales temas: investigación científica; documentación y revitalización de lenguas; formación de lingũistas; colaboraciones entre lingũistas y otros actores; colaboraciones internacionales entre lingũistas.
+ORGANIZAN SEMINARIO-TALLER SOBRE INVESTIGACIÓN LINGŨÍSTICA EN PARAGUAY.
+Foto: archivo.
+El evento está dirigido a investigadores vinculados al ámbito lingũístico y académico, representantes de instituciones formadoras, etc.
+Los interesados podrán inscribirse llamando al (021) 607 111, de lunes a viernes de 07:00 a 15:00 horas.
+El Seminario-Taller será el próximo 20 y 21 de julio del corriente año.
+El primer día será en el Colegio La Providencia, salón Auditorio “Adriano Irala Burgos”, y en el Aula Magna de la Universidad Católica, el día siguiente.
+Durante las dos jornadas, expertos de cada área discutirán temas como investigación científica; documentación y revitalización de lenguas; formación de lingũistas; colaboraciones entre lingũistas y otros actores; colaboraciones internacionales entre lingũistas.
+Una serie de objetivos particulares están asociados a cada una de las mesas que hacen parte del encuentro.
+La realización del importante encuentro académico es apoyado por la Organización de Estados Iberoamericanos (OEI).
+SPL Y GGG GRABAN TEXTOS EN GUARANÍ PARA DISPONIBILIZAR EN INTERNET.
+La agenda de trabajo con el experto de Israel será desarrollada en el salón de actos de la Academia Diplomática y Consular del Ministerio de Relaciones Exteriores.
+EL CLUB OLIMPIA UTILIZARÁ FORMALMENTE EL IDIOMA GUARANÍ
+Tras la firma de convenio de cooperación entre la Secretaría de Políticas Lingũísticas y el club Olimpia, el presidente de dicha nucleación deportiva, Marco Trovato, dijo que comenzarán a utilizar formalmente el idioma guaraní, junto al castellano, en las comunicaciones institucionales.
+expresó Trovato.
+El mismo discurso inició con estas expresiones en guaraní: “Club Olimpia guive rovy'aiterei ha romoirũta ko ñane ñe'ẽ guarani jeporu”.
+Por su parte, la ministra de la SPL, Ladislaa Alcaraz de Silvero, dijo lo siguiente
+expresó Alcaraz.
+La firma de convenio se realizó este viernes en el salón de actos del hotel Deportista Róga.
+Contó con la presencia del Ministro de la Secretaría Nacional de Deportes, Víctor Pecci; altas autoridades del club Olimpia y de la SPL.
+SUBCOMISÓN DE INFORMACIÓN, COMUNICACIÓN Y LENGUA SE SEÑAS SESIONÓ HOY POR PRIMERA VEZ.
+Este martes sesionó por primera vez la Subcomisión de Información, Comunicación y Lengua de Señas de la Comisión Nacional por los Derechos de las Personas con Discapacidad (CONADIS).
+La subcomisión mencionada está integrada por distintos organismos y entidades del sector público y privado, y es presidida por la titular de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero.
+La sesión de este martes tuvo como principales objetivos los siguientes puntos: Formalizar la integración de la Subcomisión de Información, Comunicación y Lengua de Señas; socializar contenido de Informe solicitado a la Corte Suprema de Justicia sobre Acción de Inconstitucionalidad contra la Ley 4336; y definir líneas estratégicas de acciones de la Subcomisión para el presente año.
+En la misma reunión de trabajo, la Ministra de la SPL y su par de la Secretaría Nacional por los Derechos Humanos con Discapacidad (Senadis), Diego Samaniego, firmaron la versión en guaraní del convenio de cooperación conjunta.
+La primera sesión de la Subcomisión de Información, Comunicación y Lengua de Señas se realizó en el salón de actos del Instituto Superior de Educación (ISE).
+EL MEC APRUEBA PLAN NACIONAL DE EDUCACIÓN INTERCULTURAL BILINGŨE.
+El Ministerio de Educación y Ciencias (MEC) aprobó recientemente por resolución N' 11643 el “Plan Nacional de Educación Intercultural Bilingũe” fundamentado en la búsqueda de una mayor equidad como respuesta a la rica diversidad lingũística y cultural del país.
+“La Educación Intercultural Bilingũe es una propuesta de formación integral, favorece la participación de los pueblos, quienes desde su diversidad pueden aportar soluciones múltiples a problemas diferentes.
+Además, ser formado desde un modelo educativo que incorpora la interculturalidad como valor, abre las puertas para el reconocimiento de la identidad de cada grupo humano y la construcción de la unidad en la diversidad”, reza parte de la fundamentación del Plan.
+La elaboración del Plan fue liderada por la Comisión Nacional de Bilingũismo (CNB), con el acompañamiento de las distintas direcciones generales del MEC, responsables del sistema educativo, y la Secretaría de Políticas Lingũísticas.
+El dicha presentación abordará el contacto e influencia mutua entre el guaraní y el castellano en Paraguay.
+“El castellano paraguayo tiene rasgos propios y se evidencian en los niveles fonéticos, morfosintácticos y léxico-semánticos, derivados de la situación de contacto lingũístico con el guaraní”, indica Alcaraz en parte de su presentación.
+Paraguay es país invitado de honor en la “XX Feria Internacional del Libro Santo Domingo 2017”, por ese motivo la delegación paraguaya está integrada por altas autoridades, prolíficos escritores, músicos, actores y otros.
+La gran fiesta cultural del caribe será del 20 de abril al 01 de mayo.
+LANZAN CONCURSO DE CUENTOS CORTOS EN GUARANÍ Y CASTELLANO.
+HOY SE RECUERDA EL DÍA DEL ABORIGEN AMERICANO.
+El día del aborigen americano se celebra cada 19 de abril en conmemoración al Primer Congreso Indigenista Interamericano celebrado en México un 19 de abril de 1940.
+En Paraguay existen actualmente 19 pueblos indígenas reunidos en 5 familias lingũísticas.
+Desde la Secretaría de Políticas Lingũísticas se realizan tesoneros esfuerzos a el fin de preservar, documentar y promocionar las lenguas indígenas, principalmente las que se encuentran en peligro de extinción.
+DESDE EL EJECUTIVO INSTAN A INCORPORAR USO DEL GUARANÍ
+Un equipo técnico de la Secretaría de Políticas Lingũísticas, liderado por la Directora General de Documentación y Promoción de Lenguas Indígenas, María De las Nieves Montiel, mantuvo este jueves una reunión de trabajo con el director de la casa productora Planeador, Luis Bogado, y la antropóloga, Gloria Scappini.
+Fue en el marco del proyecto de rescate lingũístico del Pueblo Lumnanas “Manjui” liderado por la SPL y financiado por el Conacyt.
+Durante la reunión de trabajo, la casa productora Planeador socializó los registros audiovisuales realizados realizados con las comunidades de Abizai, Santa Rosa y San Eugenio (San Agustín) ubicadas en el distrito de Mariscal Estigarribia, departamento de Boquerón.
+SPL Y SENADIS ACUERDAN COOPERACIÓN CONJUNTA.
+La Secretaría de Políticas Lingũísticas (SPL) y la Secretaría Nacional de los Derechos Humanos de las Personas con Discapacidad (Senadis) acordaron una cooperación conjunta.
+Los titulares de ambos entes, Ladislaa Alcaraz de Silvero (SPL) y Diego Samaniego (Senadis), formalizaron el acuerdo con la firma de un convenio realizado este lunes en la sede de la SPL.
+El convenio de cooperación está enmarcado en las líneas de la normalización, del guaraní, igual que el castellano, en la dependencia de la Senadis; fortalecer el proceso de consenso para el establecimiento de un código único para la lengua de señas en el Paraguay; asimismo, trabajar por el cumplimiento de normativas sobre inclusión laboral y accesibilidad.
+A fin de concretar las tareas enmarcadas en dicho convenio, ambas instituciones se comprometen provisionar de recursos técnicos y humanos necesarios.
+MINISTRA DE LA SPL INTEGRA COMISIÓN PARA CONMEMORAR CENTENARIO DE ROA BASTOS.
+Este lunes 30 sesionó por primera vez la Comisión Nacional conmemorativa del Centenario del laureado escritor paraguayo, Augusto Roa Bastos.
+La conferencia sobre políticas lingũísticas y pueblos indígenas tuvo como principales objetivos propiciar espacios de diálogo sobre los desafíos para el planteamiento de las políticas lingũísticas de los pueblos indígenas en Paraguay.
+CON EXPERTOS INTERNACIONALES DEBATIRÁN SOBRE POLÍTICAS LINGŨÍSTICAS Y PUEBLOS INDÍGENAS.
+Dos jornadas de conferencias sobre políticas lingũísticas y pueblos indígenas del Paraguay serán desarrolladas con expertos lingũistas de Perú y Paraguay.
+Será este lunes 5 y martes 6 de diciembre.
+La primera jornada se trata de un coloquio sobre políticas lingũísticas para pueblos indígenas donde el experto de Perú, Agustín Panizo Jansana, hablará sobre la experiencia de su país.
+Será en la Sala de Consejo del Instituto Superior de Educación (ISE) de 16:00 a 18:00 horas.
+El martes 6 se inicia la jornada académica con la conferencia sobre políticas lingũísticas y pueblos indígenas, donde la Ministra de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, hablará sobre las funciones de la SPL en el ámbito de las lenguas indígenas.
+Posteriormente, el experto de Perú desarrollará el tema Políticas Lingũísticas y Pueblos indígenas.
+Será de 08:00 a 11:00 horas, en el local de la Organización de Estados Iberoamericanos, en Humaitá 525 de la ciudad de Asunción.
+La conferencia sobre políticas lingũísticas y pueblos indígenas del Paraguay es organizada por la Secretaría de Políticas Lingũísticas (SPL) y el Ministerio de Educación y Cultura (MEC), con el objetivo de brindar espacio de diálogo sobre políticas lingũísticas para el uso y promoción de las lenguas y culturas indígenas, y posibilitar la reflexión acerca de la lengua como instrumento político, comunitario y de Estado, con miras a tomar decisiones favorables a las lenguas indígenas.
+En otro momento, el Presidente de la Academia de la Lengua Guaraní, Domingo Aguilera, compartió con el auditorio las reglas ortográficas del guaraní, recientemente aprobadas.
+MINISTRA DE LA SPL HABLÓ DURANTE LA SESIÓN EDUCATIVA DE ALIUP.
+La Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, habló sobre la diversidad lingũística del Paraguay como eje fundamental para una cultura de la paz y desarrollo en la educación que promueve valores.
+Su disertación se enmarcó dentro de la sesión educativa de la Alianza Universitaria por La Paz (ALIUP), realizada este jueves en la Sala Bicameral del Congreso de la Nación.
+MINISTRA DE LA SPL DISERTÓ SOBRE EL GUARANÍ EN UN CONGRESO INTERNACIONAL.
+Inició este jueves en la ciudad de Corrientes, Argentina, el 3er Congreso de Lengua y Cultura Guaraní.
+La Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, fue la primera expositora y destacó los espacios que va conquistando cada vez más la lengua guaraní.
+Durante su intervención, la Ministra de la SPL mencionó los cambios vertiginosos que se viven en la actualidad y cómo puede afectar esta realidad a las lenguas.
+“Somos testigos de una realidad en la cual emergen con fuerza las lenguas internacionales, hegemónicas, cuyo empleo constituye una verdadera imposición, por múltiples necesidades creadas.
+Ante esta realidad, son necesarios los esfuerzos intencionados, que permitan consolidar las lenguas propias de nuestros pueblos.
+Esta actividad se realizó en la sede de la DINAPI, en Asunción.
+PRESENTAN REVISTA JURÍDICA SOBRE USO DEL GUARANÍ EN EL MINISTERIO PÚBLICO.
+En el marco del evento “Rohayhu che ñe'ẽ. Una semana en lengua guaraní”, se realizó este lunes la presentación de los trabajos del Centro de Entrenamiento del Ministerio Público sobre la implementación de la Ley 4251/10 de Lenguas, y sobre todo, la utilización oral y escrita de la lengua guaraní por parte de los fiscales y asistentes fiscales.
+Los trabajos consisten en investigaciones publicadas en la Revista Jurídica sobre el uso del guaraní por parte de los fiscales y asistentes fiscales de todo el país; cursos de guaraní para los funcionarios; elaboración de afiches en formato bilingũe, guaraní castellano, etc.
+La Ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, acompañó el acto y destacó los trabajos del Ministerio Público en el marco de la normalización del guaraní en la institución.
+Por su parte, el Fiscal General del Estado, Javier Díaz Verón, habló de la importancia de manejar la lengua guaraní a fin de atender los derechos lingũísticos de los conciudadanos a quienes deben asistir el Ministerio Público.
+INICIÓ LA SEMANA DE LA LENGUA GUARANÍ “ROHAYHU CHE ÑE'Ẽ”.
+En la mañana de este lunes 22 se realizó el lanzamiento del evento que desafía a toda la sociedad paraguay a vivir en y con la lengua guaraní durante una semana “Rohayhu che ñe'ẽ.
+El acto de apertura se realizó en el Centro Paraguayo de Educación “Ko'ẽ Pyahu” ante un auditorio lleno.
+En la apertura del evento, la Ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, invitó a toda la sociedad paraguaya a utilizar la lengua guaraní, tanto oral como escrito, desde el ámbito donde intervenga, de manera a demostrar que es posible vivir en esta lengua, propia de la identidad paraguaya.
+La Ministra de la Secretaría de Cultura, Mabel Causarano, altas autoridades del Ministerio de Educación y Cultura y de otras instituciones acompañaron el evento.
+AGENDA DE ACTIVIDADES DE “ROHAYHU CHE ÑE'Ẽ”.
+Mañana 22 inicia el evento “Rohayhu che ñe'ẽ.
+Una semana en lengua guaraní” que se extenderá hasta el sábado 27.
+Aquí podrá informarse sobre todas las actividades programadas desde la Secretaría de Políticas Lingũísticas.
+Al mismo tiempo, de manera simultánea en los 17 departamentos geográficos, desde las gobernaciones departamentales, municipales, secretarías de educación, coordinaciones departamentales y supervisiones educativas, institutos de formación docente de gestión oficial, instituciones integrantes de la Mesa Multisectorial y numerosas otras instituciones de distintos niveles educativos, conmemorarán la semana de la lengua guaraní con su agenda propia de actividades.
+LA SPL AGRADECE A TODOS LOS MEDIOS MASIVOS DE COMUNICACIÓN POR APOYAR LA DIFUSIÓN DEL EVENTO “ROHAYHU CHE ÑE'Ẽ”
+La Secretaría de Políticas Lingũísticas (SPL) agradece a todos los comunicadores y medios masivos de comunicación radial, televisiva, impresa y virtual; asimismo, a las instituciones y gremios de medios, la Secretaría de la Información y Comunicación (SICOM), la Unión de Radiodifusores del Paraguay (URP) y la Red Activa Paraguay, por el apoyo incondicional y permanente en la difusión y promoción del evento “Rohayhu che ñe'ẽ. Una semana en lengua guaraní”.
+DAN A CONOCER LISTADO DE ADMITIDOS DEL CONCURSO PÚBLICO DE OPOSICIÓN DE LA SPL.
+El listado de admitidos de los postulantes para el cargo de Tesorero y Asistente Técnico de Auditoría del Concurso Público de Oposición de la Secretaría de Políticas Lingũísticas ya se encuentra disponible en el portan: www.paraguayconcursa.gov.py.
+La inscripción se realiza en la sede de la Secretaría de Políticas Lingũísticas, en Eligio Ayala 1052 entre Brasil y EE.UU. de 07:30 a 15:00.
+MINISTRA DE LA SPL DICTÓ UNA CONFERENCIA SOBRE “LENGUAS NATIVAS Y SU IMPACTO EN LA MEDICINA”.
+Ante un auditorio lleno, conformado por docentes y alumnos de la Facultad de Medicina de la Universidad Nacional de Asunción, la Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, dictó este jueves una conferencia sobre “Lenguas nativas y su impacto en la medicina”.
+Durante la conferencia se pudo reflexionar sobre la importancia de que el profesional de blanco maneje el código lingũístico del paciente a fin de garantizar una efectiva atención de la salud.
+La Ministra Alcaraz enfatizó su conferencia sobre los derechos lingũísticos de los ciudadanos paraguayos; la diversidad lingũística nacional y la atención en la salud, educación y justicia; la Ley de salud indígena; y el empleo de las lenguas oficiales del Paraguay.
+“Cuando un paciente habla en guaraní y el médico no entiende se produce un bloqueo y se corre el riesgo de una atención inadecuada.
+Es necesaria una comunicación efectiva entre paciente y médico”, dijo la Ministra Alcaraz.
+“La población que solo vive en guaraní es muy vulnerable, puesto que corre el riesgo de que sus derechos lingũísticos sean conculcados”, subrayó la titular de la SPL.
+La conferencia sobre “Lenguas nativas y su impacto en la medicina” se realizó en el Salón Multiuso del Hospital de Clínicas, en la ciudad de San Lorenzo.
+MINISTRA DE LA SPL ACOMPAÑÓ EL ENCUENTRO INTERDISCIPLINARIO SOBRE LA GUERRA GRANDE.
+LA SPL Y EL INDI ACUERDAN TRABAJAR POR LAS LENGUAS Y CULTURAS INDÍGENAS.
+La Secretaría de Políticas Lingũísticas (SPL) y el Instituto Paraguayo del Indígena (INDI) acordó trabajar de manera conjunta por la documentación y promoción de las lenguas y culturas indígenas.
+El compromiso de cooperación fue concretado este viernes con la firma de un convenio entre el titular del INDI, Aldo Zaldívar, y la Ministra de la SPL, Ladislaa Alcaraz de Silvero.
+El acuerdo de cooperación está enmarcado en las líneas de documentación, fortalecimiento y difusión de las lenguas y culturas indígenas del Paraguay.
+La titular de la SPL, al momento de valorar la alianza concretada con el INDI, dijo que a la hora de llegar a una comunidad indígena uno se encuentra con muchas otras necesidades y muchas veces la prioridad no es precisamente el tema lingũístico, lo que justifica el trabajo mancomunado desde el Estado para ir atendiendo las necesidades de los nativos.
+Por su parte, el Presidente del INDI dijo que el trabajo de promoción de las lenguas indígenas emprendido por la Secretaría tal vez no sea lo suficientemente reconocido aún; sin embargo, llegará el momento en que el país, la región y a nivel global se comprenderá el valor de este trabajo.
+En otro momento mencionó que el INDI creará una Dirección de Cultura y que desde ahí se coordinará fuertemente con la SPL para la promoción de las diferentes lenguas indígenas existentes en el país.
+LA SPL HABILITÓ EN SU SITIO WEB UNA VENTANA DE ACCESO A LA INFORMACIÓN PÚBLICA.
+La Secretaría de Políticas Lingũísticas (SPL) pone a disposición de la ciudadanía un espacio de consulta en su sitio web: spl.gov.py, a fin de evacuar los pedidos de información que surgiera sobre la institución y así dar cumplimiento a la Ley 5282/14 de Libre Acceso Ciudadano a la Información Pública y Transparencia Gubernamental.
+Para dar trámite a la solicitud se debe llenar el formulario proveído en la web y hacer clic en la opción “enviar”.
+Los audios pueden ser descargados artículo por artículo de manera libre y gratuita por las personas interesadas desde el sitio web de SPL: www.spl.gov.py.
+La grabación de la Ley de Lenguas se realizó de manera conjunta entre la SPL y el Grupo de Grabaciones en Guaraní (GGG) gracias a un convenio marco de cooperación suscripto entre ambas instituciones.
+La Ley de Lenguas en formato audio puede ser empleada en instituciones educativas o ser utilizadas para su reproducidas en diferentes medios de comunicación como ser Radio o Televisión.
+SPL PUBLICA DATOS PÚBLICOS EXIGIDOS POR LA LEY DE TRANSPARENCIA.
+La Secretaría de Políticas Lingũísticas (SPL) en acatamiento a la Ley 5.189 de Transparencia administrativa publica toda la información relacionada a su inventario de bienes, su anexo completo de personal, la nómina de funcionarios, los gastos asignados, los viáticos percibidos por cada funcionario, el presupuesto previsto para este año así como también el manual de organización y funciones, y el reglamento interno de la institución.
+Toda esta vasta información pública de la SPL puede ser consultada de manera libre y gratuita en su sitio link: www.spl.gov.py en el apartado referente a la Ley de Transparencia.
+FUNCIONARIOS DE LA SPL ASISTEN A CHARLA SOBRE HISTORIA DE LA CONQUISTA COLONIAL EN EL PARAGUAY.
+Ramón Barboza y Yenny Ortiz, técnicos de la Secretaría de Políticas Lingũísticas, lideraron este lunes 23 una charla de capacitación sobre la historia de la conquista colonial en el Paraguay y aspectos no oficiales de la lucha de las comunidades indígenas en contra de la política colonizadora de los españoles.
+La charla forma parte de un ciclo de talleres de capacitación sobre diversos temas lingũísticos e históricos para funcionarios de la SPL.
+INICIA PROCESO DE NORMALIZACIÓN DEL GUARANÍ EN MISIONES.
+El proceso de normalización del uso de la lengua guaraní como lengua co-oficial con el castellano se inició este viernes en el departamento de Misiones para dar cumplimiento al mandato de la Ley de Lenguas en el empleo del guaraní en los servicios de atención pública del Estado.
+Con un auditorio lleno en el Salón Mangoré de la Gobernación de Misiones, se realizó el “Taller sobre normalización del uso de la lengua guaraní en los departamentos y municipios”, que contó con la presencia y disertación de la ministra ejecutiva de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero.
+CAPACITAN A FUNCIONARIOS DE LA SPL EN COSMOGONÍA Y CULTURA DEL PUEBLO INDÍGENA MANJÚI.
+Funcionarios de la Secretaría de Políticas Lingũísticas participaron en una jornada de capacitación sobre la cosmogonía, estructura política, social y la cultura del pueblo manjúi, que reside en la región chaqueña.
+La lengua manjúi es uno de los tres idiomas indígenas paraguayos que se encuentra en peligro de extinción ante la escasez de hablantes de la lengua.
+El curso fue dictado por Sonia Ávalos, integrante de la Dirección de Promoción y Documentación de lenguas Indígenas de la SPL.
+“LENGUA GUARANÍ, INSTRUMENTO DE COMUNICACIÓN EN LA POLICÍA NACIONAL”.
+La ministra-ejecutiva de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, dio este jueves una clase magistral sobre la “LENGUA GUARANÍ, INSTRUMENTO DE COMUNICACIÓN EN LA POLICÍA NACIONAL” a un nutrido grupo de estudiantes y oficiales en actividad que realizan estudios en la Escuela de Administración y Asesoramiento de la Policía Nacional (ISEPOL).
+La clase dictada por la ministra de la SPL versó sobre dos aspectos fundamentales del bilingũismo paraguayo: la versatilidad del guaraní como lengua de comunicación interna y externa de la Policía con la sociedad y diversidad lingũística del país conformada por la atención a los pueblos indígenas y a las lenguas extranjeras que conviven en el Paraguay.
+NOTICIERO DE UNICANAL DESTACA LA PROMOCIÓN DEL USO DEL GUARANÍ EN LOS SERVICIOS PÚBLICOS.
+Así también enfatizó sobre las características propias derivadas de la coexistencia de las dos lenguas oficiales, resaltando que desde la Secretaría de Políticas Lingũísticas se hace un esfuerzo para “el reposicionamiento social del guaraní y el impulso porque su uso como idioma oficial sea equitativo con el castellano”.
+A lo largo de la conferencia analizó y explicó las peculiaridades lingũísticas con ejemplos del uso real en diversas situaciones de comunicación oral y escrita que derivan del contacto de lenguas.
+En ese sentido, exhibió un video con entrevistas a hablantes que ilustran el empleo del castellano coloquial.
+Asimismo, al finalizar la ponencia se abrió lugar al debate, momento en el cual los participantes demostraron mucho interés sobre la situación lingũística del Paraguay y entusiasmados realizaron preguntas sobre la exposición, principalmente sobre la enseñanza del guaraní y la planificación lingũística con proyección internacional.
+Cabe señalar que esta actividad se realizó en el marco de una nutrida agenda de trabajo que fue coordinada por la Embajada del Paraguay en Portugal, con el propósito de dar a conocer en Portugal el carácter pluricultural y bilingũe del Paraguay.
+La Ministra Ladislaa Alcaraz de Silvero fue acompañada por el Embajador Julio Enrique Mineur De Witte y las funcionarias de la Representación Diplomática.
+RADIO NACIONAL DEL PARAGUAY DISEÑA SU CARTELERÍA PÚBLICA EN GUARANÍ-CASTELLANO.
+Radio Nacional, es una de las radios públicas dependientes de la Secretaría de Comunicación y de la Información (SICOM).
+Radio Nacional del Paraguay de la mano de su directora General, Choni Calderón, se suma también como otras entidades públicas y privadas al proceso de normalización del uso oral y escrito del Guaraní establecido en la Ley de Lenguas, diseñando toda su cartelería pública en los idiomas Guaraní y Castellano.
+UNA HORA PARA HABLAR DE LA POLÍTICA LINGŨÍSTICA NACIONAL Y ESCUCHAR LAS MEJORES CANCIONES PARAGUAYAS “Paraguái ñe'ẽtee”.
+Contará con la presencia de altas autoridades estatales.
+Las lenguas indígenas en la educación, las políticas públicas con enfoques lingũísticos, y las políticas lingũísticas para y desde los pueblos Indígenas, son los temas que serán abordados en el conversatorio.
+Alcaraz disertó en Valenzuela.
+La ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, asistió este viernes a un acto en la ciudad de Valenzuela donde miembros de la Academia de la Lengua Guaraní realizaron la presentación del libro de la Gramática Guaraní.
+Alcaraz habló sobre las implicancias del texto normativo aprobado recientemente, en particular en el ámbito escrito y el uso oficial de la lengua guaraní.
+Así mismo, aprovechó para presentar la institución a su cargo, los logros y desafíos que afronta a favor de las lenguas del Paraguay.
+Asistieron al acto la intendente minucipal, Mirtha Fernández, autoridades educativas y alumnos de distintas instituciones del distrito.
+El evento se realizó en la Casa de la Cultura de la comunidad.
+Técnica de la SPL gana primer premio en investigación filológica.
+La Academia Paraguaya de la Lengua Española dio a conocer a la ganadora del Premio a la Investigación Filológica 2018; se trata de Biera Yboty Cubilla Zadovsky, quien es funcionaria de la Secretaría de Políticas Lingũísticas (SPL).
+En otro apartado de su conferencia dedicó a la lengua de señas para explicar la situación actual y las intervenciones de la Secretaría a su cargo a favor dicha lengua.
+Mencionó también las lenguas extranjeras utilizadas en nuestro país.
+Como prospectiva para las lenguas del Paraguay, Alcaraz indicó que existe un camino decidido para planificar la normalización del empleo de las lenguas oficiales; el fortalecimiento de la educación bilingũe intercultural; la documentación, promoción y fortalecimiento de las lenguas indígenas.
+Así también, el reconocimiento oficial y la planificación del empleo de la Lengua de Señas del Paraguay (LSPy); y la promoción, difusión, y enseñanza de las lenguas extranjeras en el Paraguay.
+dijo la Ministra.
+Para el logro de estos propósitos, dijo que debe existir una lucha sostenida, desde la ciudadanía y desde las autoridades por la oficialización del guaraní.
+El Estado paraguayo debe demostrar con prácticas ejemplares en el uso oficial y formal del guaraní.
+Buscan fortalecer lenguas indígenas de Boquerón.
+La Directora General de Documentación y Promoción de Lenguas Indígenas de la Secretaría de Políticas Lingũísticas, María De las Nieves Montiel, se reunió este jueves con autoridades de la Secretaría de Educación de la Gobernación de Boquerón a fin de articular acciones para fortalecer las lenguas indígenas existentes en el Departamento.
+Al mismo tiempo, la reunión sirvió para organizar la presentación de los resultados del proyecto “Rescate lingũístico Pueblo Lumnanas - Manjúi” que será próximamente.
+Titulares de SPL y SENATUR dialogaron sobre posibles tareas conjuntas.
+Las ministras de la Secretaría de Políticas Lingũísticas (SPL) y de la Secretaría Nacional de Turismo (Senatur), Ladislaa Alcaraz de Silvero y Sofia Montiel de Afara respectivamente, mantuvieron una reunión a fin de dialogar sobre la posibilidad de tareas conjuntas a favor de la promoción del multilingũismo paraguayo y la normalización del bilingũismo oficial en y desde la entidad del turismo de nuestro país.
+indicó la titular de la SPL tras su reunión con su par de Senatur.
+Alcaraz presentó a su colega la misión de la SPL, las normativas vigentes que refieren a las lenguas del Paraguay, los planes para la normalización de la lengua guaraní, y otros temas referidos a la gestión de la cartera de Estado a su cargo.
+La ministra de Senatur expresó mucho interés y convicción a favor de la promoción de un turismo con identidad cultural del Paraguay, que efectivamente incluya a la difusión de las lenguas propias del país.
+Titular de SPL en importante evento sobre educación.
+La ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, acompaña la presentación del “Proceso de Diálogo Social en el marco de la iniciativa de Transformación Educativa del Paraguay 2030”.
+El acto inició a las 11 horas de este jueves en la Fachada de la Bahía del Palacio de Gobierno.
+El evento es organizado por el Ministerio de Educación y Ciencias y el Ministerio de Hacienda, y contó con la presencia del Presidente de la República, Mario Abdo Benítez.
+Organizan un evento académico-cultural con acceso libre.
+Este importante material de comunicación en lengua de señas tiene en su primera fase más de 2.500 señas, validadas por las organizaciones de personas sordas del país.
+La ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, expresó en guaraní ladeuda que existe en relación a la atención a una de las lenguas paraguayas, la lengua de señas y “esto es el resultado de un esfuerzo mancomunado entre varias organizaciones", subrayó durante el lanzamiento del Signario.
+El lanzamiento del “Signario Digital de Lengua de Señas”, que contó con la presencia de altas autoridades, se realizó hoy viernes en el Centro Paraguayo de Educación Permanente “Ko'ẽ Pyahu”, en Asunción.
+Hoy se celebra el Día Internacional de los Pueblos Indígenas.
+Alrededor del mundo se celebra hoy el Día Internacional de los Pueblos Indígenas.
+En nuestro país conviven 19 pueblos distribuidos en todo el territorio nacional, pertenecientes a cinco familias lingũísticas; algunos de ellos con lenguas en situación de peligro de extinción.
+Así mismo, los pueblos indígenas representan una gran diversidad: más de 5.000 grupos distintos en unos 90 países y hablan una abrumadora mayoría de las aproximadamente 7.000 lenguas del mundo.
+Están constituidos por 370 millones de personas aproximadamente, es decir, más del 5% de la población mundial y, sin embargo, se encuentran entre las poblaciones más desfavorecidas y vulnerables representando el 15 por ciento de los más pobres.
+“En esta conmemoración anual, comprometámonos a hacer plenamente realidad la Declaración de las Naciones Unidas sobre los Derechos de sus tierras, territorios y recursos tradicionales”, António Guterres, Secretario General de las Naciones Unidas.
+Cuatro instituciones acuerdan trabajar por las lenguas del Paraguay.
+El tradicional encuentro con la poesía será del 14 al 21 de julio del 2018, en una edición dedicada a “Poesía, Chamanismo y Cantos Originarios”.
+El Festival Internacional de Poesía de Medellín, uno de los más prestigiosos del mundo en su género, desarrollará este año los siguientes ejes temáticos: Poesía, chamanismo y cantos originarios; Pensar y soñar desde Nuestra América, Sanar y poetizar; y Diálogos de la Tierra.
+El tradicional encuentro con la poesía, que reúne anualmente a un centenar de poetas del mundo entero, se perfila este año como un evento para el resurgimiento del mito y la utopía, ligados de manera esencial a la poesía.
+Alba Eiragi es una reconocida líder indígena, descendiente de una familia aché pero fue criada en una comunidad avá guaraní de Colonia Fortuna, departamento de Canindeyú.
+Tiene estudios superiores en las áreas de trabajo social y comunicación, así como un diplomado en educación intercultural.
+Publicó su primer poemario, titulado Ñe'ẽyvoty – Ñe'ẽpoty, el año pasado y fue recibida como integrante de la Sociedad de Escritores del Paraguay, como la primera mujer indígena en formar parte de la SEP.
+La poetisa indígena participará en las numerosas lecturas que anuncia el festival, además de ofrecer conferencias y participar de paneles.
+Dada su significativa trayectoria en las luchas por la defensa de su pueblo, fue invitada a dar una conferencia sobre “La escritura poética como forma de sanación” (Testimonio de su experiencia).
+La participación de la poetisa guaraní en el 28' Festival Internacional de Poesía de Medellín fue posible gracias a las gestiones de la directiva de la SEP.
+Invitan al primer festival de poesía bilingũe: guaraní-castellano.
+Las personalidades que declamarán fueron seleccionadas por ambas academias.
+Ministra Alcaraz disertó sobre “Derechos lingũísticos y acceso a los servicios de la salud”.
+La titular de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, disertó en un simposio internacional sobre “Derechos lingũísticos y acceso a los servicios de la salud”.
+Habló sobre la importancia de atender los derechos lingũísticos y las competencias comunicativas que debe tener un profesional de la salud a la hora de atender a sus pacientes.
+El evento, denominando “II Simposio Internacional y III Convención LASPGHAN.
+Gastroenterología, hepatología y nutrición pediátrica”, se está desarrollando entre hoy 22 y mañana 23 de junio en un hotel céntrico de Asunción.
+Es organizado por la Sociedad Paraguaya de Pediatría y el Comité de Gastroenterología.
+Ante profesionales de la salud e invitados de varios países, la ministra Alcaraz abordó el tema de los derechos lingũísticos y la importancia de que un profesional médico se comunica en la lengua propia de quien acuda a una atención sanitaria.
+En Posadas, Argentina, imparten cursos de guaraní.
+La Municipalidad de Posadas, Argentina, ofrece curso de guaraní de manera gratuita a sus ciudadanos.
+La lengua guaraní fue un factor de la unidad y del sacrificio nacional.
+Puede decirse que toda la campaña de la guerra, la vivió el pueblo paraguayo en guaraní.
+ELECCIONES GENERALES CON PAPELETA DE VOTACIÓN EN GUARANÍ.
+Histórico: Por primera vez en unas elecciones generales las papeletas de votación estarán disponibles en ambas lenguas oficiales del Paraguay, el guaraní y el castellano.
+Este hecho sin precedente es considerado por la Secretaría de Políticas Lingũísticas como un avance muy positivo hacia la normalización del uso oficial del guaraní; además de garantizar el derecho lingũístico del ciudadano guaraní hablante.
+El Tribunal Superior de Justicia Electoral (TSJE) y la Secretaría de Políticas Lingũísticas (SPL) trabajan en el marco de un convenio de cooperación, a partir del cual la SPL ofreció cursos de guaraní a los funcionarios del Tribunal Electoral.
+Según la Ley 4251 de Lenguas, cada paraguayo tiene derecho a recibir información oficial en guaraní y en castellano.
+El idioma guaraní deberá ser objeto de especial atención por parte del Estado, como signo de identidad cultural de la nación, instrumento de cohesión nacional y medio de comunicación de la mayoría de la población paraguaya, según reza en la misma Ley.
+Disponer de las papeletas de votación en ambas lenguas oficiales constituye una reivindicación histórica para la lengua guaraní y por ende a los hablantes; una mayor libertad para el elector que a su vez implica una consolidación de la democracia a la hora de elegir a las autoridades.
+El próximo 22 de abril, los paraguayos elegirán al nuevo Presidente y Vicepresidente de la República, cuarenta y cinco senadores titulares y treinta suplentes, dieciocho parlamentarios titulares y dieciocho suplentes del Mercosur, ochenta diputados titulares y ochenta suplentes, diecisiete gobernadores, y miembros para diecisiete juntas departamentales.
+Es digno de destacar la iniciativa de visibilizar el multilingũismo paraguayo.
+LA CULTURA PARAGUAYA ESTÁ DE LUTO.
+Con hondo pesar comunicamos el fallecimiento del Dr. Ramiro Domínguez, prominente intelectual paraguayo.
+La Secretaría de Políticas Lingũísticas expresa sus condolencias a los familiares y amigos del querido Ramiro Domínguez.
+El velatorio será desde las 10 horas de hoy en Cañete e Hijos (Mariscal Lopez 440) y el sepelio será mañana jueves en su querida ciudad de Villarrica.
+RENDICIÓN DE INFORME SOBRE CENTENARIO DE ROA BASTOS.
+La Comisión del Centenario de Augusto Roa Bastos brindó este lunes el informe relacionado a todas las actividades realizadas durante el año en recordación al natalicio del Premio Cervantes.
+La ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, igual que su par de Cultura, Fernando Griffith, otras altas autoridades y referentes de la cultura, participaron de la actividad realizada en la Casa de la Literatura.
+Durante la presentación del informe, la ministra Alcaraz se refirió en guaraní y dijo lo siguiente: “Ñañombyaty ha jeguerovy'a karai Augusto Roa Bastos rekove ha hembiasakue, hapykuere ohejáva ñandéve.
+Una extensa lista de actividades desplegadas a nivel nacional e inclusive en el exterior fueron llevadas adelante desde la Comisión integrada por varias instituciones, incluida la SPL, así como destacadas figuras de la cultura nacional.
+El evento será este jueves 23 de noviembre, a las 18:00 horas, en el local “Plaza del Folklore” de la ciudad de Vallemí, Dpto. de Concepción.
+La actividad es organizada por la Secretaría de Políticas Lingũísticas, la Municipalidad de San Lázaro y la comunidad indígena del pueblo guaná, Río Apa.
+Presidirá la ministra de la SPL, Ladislaa Alcaraz de Silvero, quien estará acompañada por altas autoridades locales y nacionales.
+La SPL viene trabajando desde hace cuatro años con la comunidad Río Apa con el firme propósito de documentar y revitalizar la lengua nativa del pueblo.
+Con el conversatorio se buscará sensibilizar e informar a la sociedad acerca de la realidad del mencionado pueblo y los esfuerzos realizados por revitalizar su lengua.
+En la ocasión también se presentará una breve dramatización a cargo de niños y jóvenes de la comunidad de Río Apa, en la que se podrá apreciar el retorno a la utilización de la lengua guaná por parte de la generación más joven, resultado ya del proceso de revitalización.
+La comunidad indígena río Apa, se encuentra asentada en el distrito de San Lázaro, en el departamento de Concepción, a 8 kilómetros aproximadamente de la ciudad de Vallemi.
+La población Guaná, asentada en esta comunidad, no supera 100 personas, sin embargo existen otras comunidades del mismo pueblo asentadas aún en la región occidental pero en comunidades interétnicas como: Machete Vaina, km. 39, km. 40, Castilla y Riacho Mosquito.
+Los guaná, antiguamente conocidos como Kaskiha, pertenecen a la familia lingũística de los Enlhet Enelhet o Maskoy, constituyen uno de los grupos que sufrió en mayor grado la transculturación debilitando la cultura propia y la lengua que se encuentra en peligro de extinción.
+RADIO NACIONAL EXHIBE CARTELERÍA EN AMBAS LENGUAS OFICIALES.
+La finalidad fundamental del trabajo de investigación consiste en proporcionar un texto que brinde una lista de posibilidades a la hora de elegir nombres en guaraní y ayudar al uso correcto y seguro de dichos nombres.
+El material estará disponible próximamente en el sitio web de la SPL: www.spl.gov.py.
+La investigación ofrece una información, lo más completa y rigurosa posible, acerca de los nombres propios en guaraní, que ya están en uso entre la población paraguaya actualmente, según los archivos oficiales de la DGREC.
+Casi todos los nombres propios en guaraní son nombres comunes de elementos de la naturaleza, como plantas, animales, astros, y también de seres de la mitología y la religión del pueblo guaraní.
+Otro dato interesante es que algunos nombres de origen guaraní llevan personas naturales de otros países, como de México, que geográficamente está a gran distancia de Paraguay.
+La cantante y actriz mexicana Anahí Giovanna Puente Portillo, nacida en la ciudad de México en 1983, conocida internacionalmente por su trayectoria artística, constituye un buen ejemplo de esta adopción de nombres en guaraní por personas de otros países de América.
+La SPL considera una actitud muy positiva hacia la lengua el aumento de nombres en guaraní entre las generaciones más jóvenes, es un signo de resurgimiento que motiva a seguir trabajando por ella, a fin de que su uso sea generalizado en todos los espacios sociales y culturales de la sociedad paraguaya, como una de las lenguas oficiales del país.
+GANADORES DEL CONCURSO PÚBLICO DE LA SPL.
+Culminado el proceso de selección del concurso público de oposición y de méritos de la Secretaría de Políticas Lingũísticas, se oficializa por resolución a los ganadores para cada cargo.
+PRESENTAN LEY DE DEFENSA DEL CONSUMIDOR EN GUARANÍ.
+Este martes se presentó Ley de Defensa del Consumidor traducida al guaraní.
+El acto de lanzamiento se realizó en la Secretaría de Defensa del Consumidor y el Usuario (Sedeco), con presencia de altas autoridades.
+La ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, valoró la iniciativa de disponibilizar la importante Ley en guaraní teniendo en cuenta que son muchos los paraguayos que se comuniquen en esta lengua.
+El trabajo de traducción al guaraní del documento normativo fue una iniciativa de los estudiantes de la Universidad Nacional de Itapúa, en colaboración con el Prof. Ricardo Walter Marimón, quien es el subsecretario de Defensa del Consumidor de la Provincia del Chaco, Argentina, con la validación de la Secretaría de Políticas Lingũísticas de Paraguay.
+CUATRO AÑOS DE DOCUMENTACIÓN Y REVITALIZACIÓN DE LA LENGUA GUANÁ
+La directora general de Documentación y Promoción de Lenguas Indígenas de la Secretaría de Políticas Lingũísticas, María De las Nieves Montiel, fue entrevistada este martes por TV Chaqueña sobre el trabajo que se viene sosteniendo desde hace cuatro años con la comunidad Río Apa del pueblo Guaná, con el firme propósito de documentar y revitalizar la lengua nativa de este pueblo que sufre serio riesgo de desaparecer.
+Así mismo, el técnico Ramón Barboza, habló de su rica experiencia de trabajar con la comunidad indígena, que busca de manera comprometida recuperar un elemento fundamental de su cultura autóctona, la lengua.
+PRESENTARÁN LEY DE DEFENSA DEL CONSUMIDOR EN GUARANÍ
+Este martes 7 se realizará la presentación de la Ley N' 1334/98 “De Defensa del Consumidor y el Usuario” traducida al guaraní.
+El lanzamiento del documento normativo en guaraní será a las 10:00 horas en el salón auditorio de la Secretaría de Defensa del Consumidor y el Usuario (Sedeco).
+LA SEMANA DE LA LENGUA GUARANÍ “ROHAYHU CHE ÑE'Ẽ” INICIA MAÑANA.
+La apertura será a las 10:00 h. en el salón “Luis Berganza” del Rectorado de la UNA, en la ciudad de San Lorenzo, con presencia de ministros del Poder Ejecutivo, altas autoridades y referentes de instituciones y organizaciones invitadas.
+A través de una serie de actividades se buscará generar espacios a favor de la promoción, revalorización y normal uso de la lengua guaraní en todos los ámbitos de interacción social, de manera a jerarquizar y elevar el orgullo de la población hacia ella.
+Las actividades se desarrollarán en la semana comprendida del 21 al 25 de agosto, que coinciden con las fechas conmemorativas del día del folclore y día del idioma guaraní.
+Está programada una nutrida agenda de actividades culturales, académicas, de sensibilización y de conmemoración que involucrarán a niños, jóvenes y adultos de todo el país, y los compatriotas residentes en el exterior.
+En el marco del evento se realizará en forma simultánea una serie de actividades en todo el país y desde diferentes instituciones que involucran a los Institutos de Formación Docente de Gestión Oficial, las Secretarías de Educación de las Gobernaciones y los referentes de la Unidades de Asuntos Lingũísticos de los entes del Poder Ejecutivo.
+Los actos conmemorativos se extenderán hasta el día viernes 25 que incluyen: foros, seminarios, talleres, reconocimiento a profesionales de diferentes ámbitos e instituciones que promocionan la lengua guaraní, entre otros.
+además de extender la invitación a toda la población paraguaya para que desde el lugar donde esté apoye la iniciativa de utilizar el idioma guaraní en cualquier ámbito de interacción.
+INVITAN A VIVIR EN GUARANÍ DURANTE UNA SEMANA.
+La Secretaría de Políticas Lingũísticas (SPL) organiza por cuarto año consecutivo la semana de la lengua guaraní “Rohayhu che ñe'ẽ” que invita a la sociedad paraguaya a vivir en y con la lengua durante toda una semana.
+La firma del acuerdo será este viernes 26 de mayo a las 09:30 h. en el salón de actos del hotel Deportista Róga, en Avda. Eusebio Ayala km 5.
+El Presidente del Club Olimpia, Marco Trovato, y la titular de la SPL, Ladislaa Alcaraz de Silvero, sellarán el acuerdo de cooperación a favor de la promoción lingũística.
+Asimismo, el Ministro de la Secretaría Nacional de Deportes, Víctor Pecci, firmará como testigo de honor.
+A partir del convenio se impulsará la creación y difusión de programas y proyectos de utilización de las lenguas oficiales durante el desarrollo de diversas actividades deportivas promovidas desde el Club.
+Asimismo, se buscará promover actitudes lingũísticas favorables que permitan superar prejuicios, evitar discriminación por razones lingũísticas y respetar los derechos lingũísticos de las personas.
+El uso escrito de la lengua guaraní junto con el castellano en las comunicaciones emitidas por la entidad (cartelería, señalética, instrumentos de comunicación visual, publicidad y otros espacios donde sea necesario dentro del Club), se enmarca dentro de las prioridades del convenio a ser firmado.
+La duración del convenio será de tres años y podrá prorrogarse de manera automática, salvo comunicación escrita contraria.
+EN ALIANZA CON EL CLUB OLIMPIA, LA SPL BUSCA PROMOCIONAR USO DEL GUARANÍ.
+En la mañana de este miércoles, la Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, se reunió con el presidente del Club Olimpia, Marco Trovato, quien expresó su firme interés en apoyar la promoción de la lengua guaraní en las actividades del Club.
+Afirmó el presidente del Olimpia, durante su diálogo con la titular de la SPL.
+La SPL resalta que jóvenes emprendedores estén abriendo nuevos espacios para la difusión de la lengua guaraní.
+La traducción del inglés al guaraní de los dos primeros temas que serán grabados fue realizada por Javier Zalazar y Magali Barrios, con el apoyo de docentes de la lengua.
+PRESENTARÁN NOVELA ESCRITA EN GUARANÍ “TATUKUA”.
+l próximo viernes 10 de marzo a las 19:00 h. será presentada la novela inédita escrita enteramente en el idioma guaraní titulada Tatukua.
+El autor del libro es el joven escritor guaireño, Arnaldo Casco, quien ya tiene varios reconocimientos en concursos de narrativa en guaraní.
+La presentación será en el salón de actos del Centro Cultural de la República El Cabildo (Avda. República y Alberdi) y estará a cargo de la Ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero; Presidente de la Academia de la Lengua Guaraní, Domingo Aguilera; y el Académico de la Lengua Guaraní, Mauro Lugo.
+La novela Tatukua plantea varios temas, entre los cuales se destaca la pérdida de identidad, producto del desarraigo.
+Asimismo, busca rescatar la idiosincrasia, lenguaje, costumbre, tradición, creencias populares, mitos propios de la novela, paisajes, denuncias sociales y vivencias del campo.
+La estructura y voces narrativas, tipología del relato, verosimilitud (inverosimilitud), escenarios, son algunos de los otros recursos bien aprovechados en la novela.
+En el campo del pensamiento se destacan el existencialismo, relativismo moral y la superstición.
+La Comunidad Indígena Río Apa del Pueblo Guaná, con el apoyo de la Secretaría de Políticas Lingũísticas (SPL) y la Coordinadora Nacional de Pastoral Indígena (CONAPI), presentará el documental denominado “El Baile Mbyky de los Guaná”.
+Será este viernes 25 de noviembre, a las 20:00 horas, en el local de la Casa Bicentenario de las Artes Visuales “Ignacio Núñez Soler” (Azara 845 e/ EE.UU. y Tacuary de la ciudad de Asunción).
+Este material audiovisual, editado en base a la ceremonia realizada por el pueblo mencionado en su propia comunidad, en diciembre del año 2015, donde después de muchos años volvió a realizar este ritual, práctica que se debilitó juntamente con su idioma que se encuentra en peligro de extinción.
+El baile se realizó en el marco del proceso de la revitalización de la lengua y la cultura del pueblo Guaná.
+Los guaná, antiguamente conocidos como Kaskiha, pertenecen a la familia lingũística Lengua Maskoy o Enlhet Enelhet, constituyen uno de los grupos que sufrió en mayor grado la transculturación debilitando la cultura propia y la lengua que se encuentra en peligro de extinción.
+El objetivo del documental es sensibilizar e informar a la sociedad acerca de la práctica cultural del mencionado pueblo y los esfuerzos realizados por revitalizar su lengua y su cultura, y se hará de la mano del líder de la Comunidad Indígena Río Apa, Miguel Cuéllar y miembros de la comunidad.
+Esta actividad está dirigida al público en general y el acceso es libre y gratuito.
+La comunidad indígena Río Apa, se encuentra asentada en el distrito de San Lázaro, en el departamento de Concepción, aproximadamente a 8 kilómetros de la ciudad de Vallemi.
+La población Guaná, asentada en esta comunidad, no superan 100 personas; sin embargo, existen otras comunidades del mismo pueblo asentadas aún en la región occidental pero en comunidades interétnicas como: Machete Vaina, km.
+PLANIFICAN USO NORMAL DEL GUARANÍ EN CAAGUAZÚ.
+La Ley 4251/10 de Lenguas establece el uso equitativo de las dos lenguas oficiales en la atención pública.
+Desde la SPL se coordinan tareas conjuntas con diferentes instituciones para la aplicación gradual de dicha normativa.
+El taller de normalización del guaraní con actores locales de Concepción se realizó en la sede de la Gobernación departamental.
+ÚLTIMOS DÍAS DE INSCRIPCIÓN PARA EL CONCURSO PÚBLICO DE LA SPL.
+Quedan pocos días para el cierre del plazo de inscripción de los interesados en postularse al Concurso Público de Oposición que lleva adelante la Secretaría de Políticas Lingũísticas (SPL) a fin de cubrir seis cargos permanentes en la institución.
+Los interesados podrán postularse hasta el día lunes 17 de octubre de 07:30 a 15:00.
+MINISTRA DE LA SPL ACOMPAÑÓ LA CELEBRACIÓN DEL DÍA DE LAS MUJERES RURALES.
+Con una masiva concurrencia de mujeres de diferentes puntos del país, se realizó este martes la celebración del Día de las Mujeres Rurales.
+Fue en el Parque Litoral del Palacio de Gobierno y contó con la presencia del Presidente de la República, Horacio Cartes.
+La Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladisaa Alcaraz de Silvero, igual que otras altas autoridades, acompañó el evento.
+Sobre las vocales nasales no se usa la tilde acentual.
+La palabra solamente puede llevar una tilde acentual y la misma es móvil, se desplaza según las partículas que se le adicionan.
+La presente regla tiene como adicional complementaria la regla del acento tonal.
+Tercera regla.
+De la formación de sílabas nasales.
+No concurren en la sílaba dos letras nasales.
+Cuando la vocal oral (a, e, i, o, u, y) forma sílaba con las consonantes nasales (ĝ, m, n, ñ) o naso-orales (mb, nd, ng, nt) queda nasalizada por dichas consonantes.
+Cuando la vocal nasal (ã, ẽ, ĩ, õ, ũ, ỹ) forma sílaba con consonante oral (ch, g, h, j, k, l, p, r, rr, s, t, v,' (Puso)), dicha sílaba es nasal.
+Cuarta regla.
+De la formación de palabras.
+La tarea fue liderada por la Secretaría de Políticas Lingũísticas, con el acompañamiento de varias otras instituciones como: SAS, SEN, INDI, MSPyBS, MAG, gobierno departamental y municipal, a fin de ofrecer una atención integral a las necesidades de la comunidad indígena.
+La comunidad Río Apa está integrada por 32 familias y 96 personas.
+Tan solo son cuatro abuelas quienes hablan aún la lengua propia.
+En consenso con el pueblo, se aprobó la grafía de la lengua; las cuatro abuelas hablantes del guaná y maestros de la comunidad fueron capacitados en metodología de enseñanza de L2.
+Asimismo, se aplicó un protocolo de encuesta sociolingũística y se realizó una investigación acerca de la historia de la comunidad de Río Apa.
+Posteriormente, las abuelas comenzaron a enseñar la lengua a los niños, jóvenes y adultos, a fin de reactivar su uso.
+Con el apoyo voluntario del lingũista estadounidense, Shaw Nicolás Gynan, se realizaron los trabajos de documentación, en formatos audio y video, del vocabulario y aspectos gramaticales de la lengua guaná y, en breve, será publicado el diccionario trilingũe, guaná-guaraní-castellano, en formato audio y escrito, con aproximadamente mil palabras, paso importante para una lengua, que era ágrafa antes de la llegada de la SPL a la comunidad.
+En el marco de la promoción de la lengua, la SPL elaboró documentales sobre la comunidad y su aspecto lingũístico-cultural, material que fue difundido en seminarios, ferias y conferencias en la capital del país.
+SINCEROS AGRADECIMIENTOS.
+La sociedad paraguaya demostró el amor y orgullo que siente por la lengua guaraní; en ese sentido, en los distintos puntos del país se vivió la fiesta de la lengua con diferentes actividades en alusión a ella.
+De lo que se está haciendo en tu entorno con el guaraní ¿Qué se debe replantear?
+¿Qué acciones se pueden realizar para promover el posicionamiento de la lengua guaraní en todos los sectores y ámbitos sociales?.
+CON CAMINATA, ALEGORÍAS Y SHOW ARTÍSTICO, CERRARÁN SEMANA DEL GUARANÍ.
+Están todos invitados a participar de la clausura de “Rohayhu che ñe'ẽ.
+Una semana en lengua guaraní” que será mañana sábado 27 de agosto.
+La convocatoria es en la plaza Uruguaya para las 08:30 horas, luego se realizará una caminata con alegorías y show artístico en alusión a la lengua guaraní por la calle Palma hasta llegar al Panteón de los Héroes donde se podrá presenciar un show especial que ofrecerá la Orquesta Sinfónica Nacional para luego cerrar con el Ballet Municipal.
+Niños, jóvenes y adultos podrán participar de la fiesta del idioma guaraní que cerrará de esta manera la tercera edición de “Rohayhu che ñe'ẽ.
+PRESIDENTE DE LA REPÚBLICA EN EJERCICIO, JUAN AFARA, ENTREGÓ RECONOCIMIENTOS A PROMOTORES DEL GUARANÍ.
+En el marco de la semana de la lengua guaraní “Rohayhu che ñe'ẽ”, en coincidencia con el día del idioma guaraní, la Secretaría de Políticas Lingũísticas (SPL) distinguió este jueves a figuras destacadas, medios de comunicación, instituciones y servidores públicos que promueven constantemente el uso del guaraní.
+El Presidente de la República en Ejercicio, Don Juan Afara, participó de la entrega de reconocimientos a las homenajeados.
+Aguardamos tu video hasta mañana 18 hasta las 20:00 horas.
+Muchas gracias a todos.
+MINISTRA DE LA SPL ACOMPAÑÓ LA PRESENTACIÓN DEL PORTAL DATOS ABIERTOS.
+La Ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, acompañó este jueves la presentación del Portal Datos Abiertos.
+Es un nuevo servicio que ofrece la Secretaría de la Función pública donde se dispone de los datos de la totalidad de servidores públicos del Paraguay.
+El Portal Datos Abiertos (datos.sfp.gov.py) brinda informaciones referentes a los servidores públicos de los tres poderes del Estado.
+La presentación de este nuevo servicio, que apuesta a la transparencia del manejo público, se realizó en un conocido hotel céntrico de Asunción.
+LA SPL CELEBRA CINCO AÑOS DE VIDA INSTITUCIONAL.
+En un emotivo acto de celebración por los cinco años de vida institucional de la Secretaría de Políticas Lingũísticas se reconoció el esfuerzo de muchas personas que han colaborado para la promulgación de la Ley 4251 de Lenguas y la instalación de la Secretaría, concretada un 11 de agosto del 2011, con el Decreto No 7.099 del Poder Ejecutivo que nombró al primer Ministro Secretario-Ejecutivo, Carlos Villagra Marsal.
+El evento de celebración fue presidido por la Ministra de la SPL, Ladislaa Alcaraz de Silvero, acompañado por el plantel del funcionarios de la institución e invitados especiales, entre ellos la Sra. Ana María Carrón de Villagra, Sr. Almidio Aquino, Sr. Tadeo Zarratea, y otros.
+La SPL trabaja en la promoción, reposicionamiento y uso normal del guaraní, junto al castellano, en el sector público y privado.
+Realiza la documentación, revitalización y promoción de varias lenguas indígenas, priorizando las categorizadas en riesgo de extinción.
+Así mismo, ha potenciado la investigación lingũística para la consolidación de la política lingũística nacional.
+La institución celebra hoy cinco años de vida con el firme compromiso de seguir potenciando la política lingũística que busca el respeto de la diversidad cultural y la dignidad de cada hablante que tiene como derecho lingũístico desarrollarse en su lengua propia.
+DIRECTORA DE LA SPL PRESENTÓ ESTE DOMINGO EL PROYECTO “ROHAYHU CHE ÑE'Ẽ”.
+La Directora General de Planificación Lingũística de la Secretaría de Políticas Lingũísticas (SPL), Celia Godoy, presentó este domingo el proyecto de celebración de la semana de la lengua guaraní “Rohayhu che ñe'ẽ”, organizado por la SPL.
+La presentación fue en la sede central del Ateneo de Lengua y Cultura Guaraní, institución que al mismo tiempo lleva adelante una serie de actividades por el mes del idioma guaraní.
+La celebración de la semana de la lengua guaraní “Rohayhu che ñe'ẽ”, realizada por tercer año consecutivo, será del 22 al 27 de agosto.
+Con ella se busca el normal uso de la lengua guaraní en los diferentes ámbitos de interacción social, y de esta manera, el reposicionamiento de la lengua propia de la identidad paraguaya.
+SE AMPLÍA PLAZO DE INSCRIPCIÓN PARA LOS POSTULANTES AL CARGO DE ASISTENTE DE MESA DE ENTRADA PcD.
+La Secretaría de Políticas Lingũísticas (SPL) informa la ampliación del plazo de postulación al cargo de Asistente de Mesa de Entrada PcD.
+Los interesados podrán inscribirse al Concurso en la sede de la SPL, en Eligio Ayala 1052 entre Brasil y EE. UU, hasta el día viernes 12 de agosto.
+Para postularse al Concurso Público de Oposición para cargo permanente el interesado deberá entrar a la página web: www.paraguayconcursa.gov.py, donde se dispone de todas las informaciones referentes al concurso; asimismo, los formularios que deberán llenarse para la inscripción.
+PROMOCIONAN POR PARAGUAY TVHD EL LLAMADO A CONCURSO PÚBLICO DE OPOSICIÓN DE LA SPL.
+Los funcionarios de la Dirección General de Gestión y Desarrollo de las Personas de la Secretaría de Políticas Lingũísticas (SPL), Javier Tatter y Leticia Rondelli, fueron entrevistados esta mañana en el noticiero del canal de televisión Paraguay TVHD sobre el llamado a concurso público de oposición que lleva adelante la SPL para cubrir tres cargos vacantes.
+Los puestos vacantes son.
+EL MEC Y LA SPL COORDINAN NORMALIZAR USO DEL GUARANÍ EN LOS INSTITUTOS DE FORMACIÓN DOCENTE.
+El Ministerio de Educación y Cultura (MEC) y la Secretaría de Políticas Lingũísticas (SPL) organizan un taller de trabajo con los 41 Institutos de Formación Docente de Gestión Oficial de todo el país a fin de promover la normalización de la lengua guaraní junto al castellano e implementar la Ley 4251 de Lenguas.
+El encuentro de trabajo con los referentes de los IFD de todo el país se realiza hoy martes 26 y mañana miércoles, de 08:00 a 15:00 hs.
+El taller es en el salón de actos de Prodepa, en la Avda. Eusebio Ayala km 4 1/2.
+Durante su presentación, la Directora Celia Godoy habló sobre proceso de normalización del uso de la lengua guaraní como lengua oficial junto al castellano en el nivel de formación docente y de esa manera dar cumplimiento a las disposiciones vigentes tales como: la Constitución Nacional, la Ley de Lenguas y otras normativas nacionales e internacionales que hacen relación a las lenguas y el respeto de los derechos lingũísticos.
+El taller se realizó en el local del Instituto de Formación Docente de Villa Hayes.
+MINISTRA DE LA SPL ACOMPAÑÓ LA PRESENTACIÓN DEL DICCIONARIO NIVACLÉ.
+La Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, acompañó este viernes el lanzamiento del diccionario bilingũe, nivaclé-castellano, elaborado y presentado por el Equipo Lingũístico Nivaclé.
+Al momento de valorar la tarea emprendida por el Equipo Lingũístico Niivaclé, la Ministra de la SPL dijo lo siguiente: “Hoy contamos con el testimonio del pueblo Nivaclé, tan leal a su lengua, perseverante e insistente en el arduo trabajo de documentarla, estudiarla, fijarla por escrito”, expresó.
+“Somos testigos del resultado de un trabajo voluntario, decidido, hecho que celebramos con mucho gozo y tomamos como referencia, como ejemplo para comprometernos cada día más en defender nuestras lenguas, de fortalecerlas y luchar porque ni una lengua más se pierda en el Paraguay, porque sería una pérdida no solo para nuestro país, sino para la cultura universal”, puntualizó la Ministra Alcaraz.
+El acto de lanzamiento fue en el salón de eventos de la Gobernación de Boquerón, en la ciudad de Filadelfia y contó con la presencia del Vicepresidente de la República, Juan Afara, el Gobernador de Boquerón, Edwar Pauls, y otras altas autoridades locales y nacionales.
+La Ministra de la Secretaría de Políticas Lingũísticas fue acompaña por la Directora General de Documentación y Promoción de Lenguas Indígenas, María De las Nieves Montiel.
+LANZARÁN UN DICCIONARIO EN LENGUA NIVACLÉ
+El Equipo Lingũístico del pueblo indígena Nivaclé lanzará este viernes un diccionario bilingũe, nivaclé-castellano.
+Posteriormente se referirán a distintos aspectos de la línea editorial y del contenido de la revista, los académicos, Almidio Aquino, Susy Delgado y Mario Rubén Álvarez.
+La primera edición de la revista corresponde al sello editorial de Servilibro.
+La revista ofrece un amplio material de lectura, gran parte del cual está escrito en guaraní.
+Dentro del rico contenido se destacan una nota central que trata sobre la Gramática de la Lengua Guaraní (Guarani Ñe'ẽtekuaa), elaborada por el presidente de la entidad, Carlos Ferreira, con avances seleccionados de este importante libro presentado el año pasado.
+Asimismo, la nota titulada “Ñe'ẽryru apo oñepyrũma”, firmada por la ministra de la Secretaría de Políticas Lingũísticas y académica de número de la ALG, Ladislaa Alcaraz de Silvero, quien adelanta aspectos relacionados al Diccionario de la Lengua Guaraní que se ha empezado a elaborar en el seno de la Academia.
+Contiene además, una reseña de la vida institucional de la entidad, escrita por el vicepresidente, Almidio Aquino.
+Una nutrida sección dedicada a expresiones literarias en guaraní enriquecen asimismo este primer ejemplar de la revista de la ALG.
+Entre el frondoso material literario se cuentan colaboraciones de los poetas Lino Trinidad, Feliciano Acosta, Mauro Lugo, Ramón Silva, Lucino Rodríguez, Susy Delgado, Domingo Aguilera, Indalecio Riquelme, Mario Rubén Álvarez, y de los narradores Tadeo Zarratea, Hugo Centurión, Arnaldo Casco y Lilian Aliente.
+Diversas notas de interés relacionadas con la lengua guaraní, aportadas por académicos como Miguel Verón y Bernarda Ortellado completan el contenido de la revista.
+Reunión de trabajo entre la SPL y otros entes involucrados en la gestión lingũística.
+“Teniendo esto en cuenta, las Naciones Unidas declararon 2019 Año Internacional de las Lenguas Indígenas (IYIL2019) con el fin de sensibilizar a la sociedad, no solo para beneficiar a las personas que hablan estas lenguas, sino también para que otros aprecien la importante contribución que hacen a la rica diversidad cultural de nuestro mundo”, describe la página web.
+Formulario del MEC disponible en guaraní.
+El Formulario MOV02 "Solicitud y Autorización del Movimiento del Personal", instrumento utilizado por funcionarios administrativos técnicos y docentes del Ministerio de Educación y Ciencias fue traducido al guaraní.
+El trabajo de traducción y validación del texto estuvo a cargo de la Secretaría de Políticas Lingũísticas (SPL).
+La iniciativa es de la Dirección General de Derechos Humanos en conjunto con la Dirección General de Gestión y Desarrollo del Personal del MEC, en el marco de la necesidad de fomentar la protección de la igualdad de condiciones desde el enfoque de los derechos humanos en las actuaciones administrativas del MEC en observancia a las leyes vigentes que conceden derechos a los trabajadores públicos.
+La Directora General de DDHH del MEC, Melissa Díaz, recibió este viernes de la mano de la ministra de la SPL, Ladislaa Alcaraz de Silvero, el documento traducido al guaraní.
+Durante la entrega del documento, que fue formalizada este viernes en la oficina de la SPL, la ministra destacó que “no es suficiente el estatus de oficialidad del guaraní, sino que requiere llevar a la práctica su uso oficial y con este tipo de prácticas vemos que del uso folclórico estamos pasando al ámbito formal”.
+Cabe señalar que la SPL, en el marco del fortalecimiento del uso de la lengua guaraní en la Función Pública, viene apoyando a diversas instituciones en las traducciones de distintos tipos de documentos oficiales a fin de dar cumplimiento a la Ley 4251/10 “de Lenguas”.
+Este y otros trabajos emprendidos desde la SPL y que se enmarcan en la normalización del uso oral y escrito de la lengua guaraní en todos los ámbitos de la sociedad, responden también a la conmemoración del “Año Internacional de las Lenguas Indígenas”, por constituirse el guaraní un elemento fundamental de nuestra cultura, herencia de los nativos guaraníes.
+Traducen al guaraní el Código de Ética de la Facultad de Medicina.
+La Declaración de Interés Nacional reza que con el título “Yvypóra Derechoregua Kuaaukapypavẽ”, el documento traducido enteramente en idioma guaraní fortalece el compromiso asumido por el pueblo y el gobierno nacional a propósito del respeto, la promoción y la protección a los Derechos Humanos en todo su territorio.
+Coordinan Año Internacional de Lenguas Indígenas.
+Este miércoles se realizó un importante diálogo entre representantes de los tres poderes del Estado apuntanto a la celebración del “2019, Año Internacional de las Lenguas Indígenas”.
+El encuentro de autoridades se realizó en la oficina del Gabinete Social de la Presidencia de la República y fue presidida por la ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero.
+Alcaraz presentó una contextualización del significado de la celebración del Año Internacional de las Lenguas Indígenas, la realidad sociolingũística de los pueblos indígenas del Paraguay y las implicancias de la política lingũística favorable a las lenguas indígenas del país.
+Para aunar esfuerzos y encarar de manera cohesiva el año de celebración, referentes tanto del Poder Ejecutivo, Judicial y Legislativo, participaron de la reunión.
+Titulares de SPL y MITIC dialogaron sobre posibles trabajos conjuntos.
+Este viernes se reunieron los ministros del Ministerio de Tecnologías de la Información y Comunicación (MITIC) y de la Secretaría de Políticas Lingũísticas (SPL), Alejando Peralta Vierci y Ladislaa Alcaraz de Silvero respectivamente.
+Hablaron sobre las posibles tareas que pueden emprender de manera conjunta ambas instituciones.
+La aplicación de la Ley 4251/10 de Lenguas en lo concerniente a la implementación de una política de comunicación estatal en lengua guaraní, igual que en castellano, como lenguas oficiales del Paraguay; y la campaña de difusión del Año Internacional de las Lenguas Indígenas, fueron ejes principales en la conversación de los ministros.
+El evento, desarrollando de manera virtual, fue organizado por el Fondo para el Desarrollo de los Pueblos Indígenas de América Latina y el Caribe (Filac), el Gobierno del Estado Plurinacionalidad de Bolivia y el Fondo de las Naciones Unidas para la Infancia (Unicef).
+Se realizó en el marco de la 20ª Sesión del Foro Permanente para las cuestiones Indígenas “Hacia el Decenio de las Lenguas Indígenas para la construcción de la Paz y Reconciliación”
+Alcaraz abordó cinco puntos para resaltar dichas buenas prácticas: turismo en comunidades indígenas, feria de artesanía Ore, salud, comunicación y políticas lingüísticas.
+Asimismo, habló de la buena experiencia con la feria de artesanía Ore del IPA, donde los indígenas exponen a la venta productos artesanales de tejeduría, tallado, cestería, entre otros, con rotulaciones en lenguas indígenas.
+Referentes de Asuntos Lingüísticos se reunieron este martes
+La Secretaría de Políticas Lingüísticas (SPL) convocó a una reunión virtual a los referentes de las Unidades de Asuntos Lingüísticos (UAL) de las distintas instituciones públicas que ya cuentan con la dependencia instalada y operativa dentro de su estructura organizacional.
+El encuentro sirvió para delinear las acciones a ser implementadas en el transcurso del 2021.
+La directora general de Planificación Lingüísticas de la SPL, Celia Godoy, presidió la reunión virtual, quien explicó a los participantes la importancia de seguir con las acciones tendientes a la implementación de la Ley 4251/10 “De Lenguas” en cada institucional pública.
+Los universitarios indígenas presentaron ayer sus investigaciones finales y defendieron estos trabajos ante las autoridades académicas en su lengua propia y en castellano.
+Cabe destacar que durante toda la carrera las clases fueron impartidas en la lengua pãi, en guaraní paraguayo y en castellano.
+La Licenciatura en Interculturalidad, que constituye la primera grata experiencia en nuestro país, consistió en el desarrollo de 47 módulos, que totalizaron 3.305 horas de clases desarrolladas (2.085 horas presenciales y 1.220 horas a distancia).
+Durante el transcurso de la carrera, los alumnos participaron activamente de diversas actividades organizadas por la UNC, tales como: ferias multidisciplinarias, jornadas educativas, congresos internacionales donde divulgaron sus investigaciones, olimpiadas deportivas, etc.
+La reunión fue presidida por la ministra de la Secretaría Nacional por los Derechos Humanos de las Personas con Discapacidad (Senadis), Mariela Ramírez, quien presentó el informe de gestión de la entidad a su cargo, institución que encabeza la Conadis.
+En la sesión se presentaron, además, los avances de las acciones de las distintas subcomisiones que integran la Conadis.
+Desde la SPL, entidad que lidera la Subcomisión de Información, Comunicación y Lengua de Señas, su titular, la ministra Ladislaa Alcaraz de Silvero, presentó los logros de la subcomisión.
+Representantes de instituciones públicas, entes no gubernamentales y de la sociedad civil, además de los referentes de organizaciones que trabajan a favor de las personas con discapacidad, formaron parte de la sesión virtual.
+Este convenio permitirá el apoyo mutuo entre ambas instituciones para llevar adelante proyectos que apunten a la revalorización, visualización y la normalización del uso oral y escrito del guaraní, idioma oficial del Paraguay igual que el castellano.
+La ministra de la SPL, Ladislaa Alcaraz de Silvero, y el ministro de la Sedeco, Juan Marcelo Estigarribia, concretaron la rúbrica del acuerdo, celebrada en el despacho de la titular de la SPL, en la ciudad de Asunción.
+La titular de la SPL valoró la inclusión del uso oficial del guaraní en el servicio que brinda la Sedeco atendiendo que se trata de la lengua mayoritaria del país y el derecho que tiene cada ciudadano de ser informado en su lengua propia.
+La Sedeco viene impulsando el uso oficial de la lengua guaraní, y en esa línea ha venido emitiendo resoluciones en el idioma mencionado; inclusive, la misma Ley de Defensa del Derecho del Consumidor y el Usuario está traducida al guaraní.
+En Paraguay existen garantías legales que buscan asegurar el respeto a los derechos lingüísticos de las personas.
+Estas normativas reconocen la importancia de la alfabetización en la lengua materna, atendiendo que es crucial para el desarrollo personal, cognitivo y emocional de las personas.
+Técnicos de la SPL participaron de un evento internacional sobre lengua materna
+Técnicos de la Dirección General de Documentación y Promoción de Lenguas Indígenas de la Secretaría de Políticas Lingüísticas participaron este viernes vía Zoom del seminario internacional “Fomento del multilingüismo para la inclusión en la educación y la sociedad” organizado por la Unesco en el marco del Día Internacional de la Lengua Materna que se recuerda el 21 de febrero.
+Presidida por la ministra secretaria ejecutiva de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, se dio vía Zoom la primera sesión del año de la Subcomisión de Información, Comunicación y Lengua de Señas de Conadis.
+Los objetivos de la misma fueron: socializar el cronograma de sesiones de la subcomisión para el período 2021, presentar las acciones misionales de la Dirección General de Lengua de Señas de la SPL y establecer acuerdos y compromisos sobre otros temas de interés de la subcomisión.
+En la misma estuvieron presentes directores de la SPL, actores de diferentes estamentos la sociedad civil, donde se presentó el cronograma de actividades del año, así como la metodología de trabajo a ser implementada durante la pandemia.
+Celebrarán a la lengua materna durante una semana
+En el marco del Día Internacional de la Lengua Materna que se recuerda este domingo 21 de febrero, la Secretaría de Políticas Lingüísticas (SPL), con el apoyo de varias instituciones y especialistas del área, organiza diversas actividades y eventos académico-científicos a fin de crear un espacio de reflexión sobre la importancia del uso y la atención a la lengua materna en nuestro país.
+Todas las actividades (seminarios, conferencias, conversatorios, charlas, promociones, etc.) serán desarrolladas de manera virtual, a través de Zoom y vía Facebook Live de la Secretaría de Políticas Lingüísticas.
+La agenda de la semana de la lengua materna puede ser descargada haciendo un clik aquí: Agenda Semana de la Lengua Materna.
+Paraguay es un país rico en diversidad lingüística, constituida por el bilingüismo oficial (guaraní-castellano), las 19 lenguas indígenas, la lengua de señas y otras lenguas presentes en el territorio nacional.
+La conmemoración del Día Internacional de la Lengua Materna cada 21 de febrero fue establecida por la Unesco y se celebró por primera vez en el año 2000, con el objetivo de promover el multilingüismo y la diversidad cultural.
+Reunión con técnicos del IPS sobre uso de las lenguas oficiales del Paraguay
+La ministra secretaria ejecutiva de la Secretaria de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero junto con la directora de planificación Celia Godoy, y el responsable de comunicación interna y externa, Carlos Ullón se reunieron con el Director de Organización y Calidad del Instituto de Previsión Social, José Carrón y técnicos del IPS.
+En la misma ministra de la SPL realizó una contextualización de la realidad de las lenguas oficiales del Paraguay, así como la importancia de realizar esfuerzos para que desde el IPS puedan ir progresando rumbo al uso de ambas lenguas en las diferentes instancias del ente Estatal.
+Cada entrada cuenta con su/sus respectivas marcas gramaticales y la definición en guaraní, consignando las diferentes acepciones con sus respectivos enunciados de uso, ejemplos extraídos de fuentes de referencia, de un corpus escrito de la lengua, principalmente del ámbito literario y académico-didáctico.
+El material a ser presentado registra una cantidad limitada aún de entradas por lo que se presenta como una obra abierta para ajustes y ampliaciones posteriores.
+Por tanto, este diccionario está en construcción y es función de sus usuarios, así como de los estudiosos de la lengua que día a día sigan fomentando su estudio, cuidado y mejora, explicaron desde la ALG.
+La Academia de la Lengua Guaraní es una entidad privada, sin fines de lucro, creada por Ley 4251/10 “De lenguas”.
+La familia González Oddone, con el patrocinio de la Academia Paraguaya de la Lengua Española, lanza el Premio de Novela Inédita “Beatriz Rodríguez Alcalá de González Oddone” 2021.
+La obra ganadora obtendrá una recompensa de 6 mil dólares americanos.
+Quienes deseen concursar tienen tiempo hasta el miércoles 30 de junio del 2021 para presentar su obra.
+La decisión del jurado, conformado por representantes de la familia González Oddone y de la Academia Paraguaya de la Lengua Española, se conocerá el martes 31 de agosto del 2021.
+El Gabinete Social de la Presidencia de la República y la Secretaría de Políticas Lingüísticas (SPL) suscribieron este lunes un convenio marco de cooperación interinstitucional a fin de desarrollar acciones tendientes a la promoción del guaraní y el fortalecimiento de bilingüismo paraguayo en el marco del Sistema de Protección Social (SPS).
+El documento fue firmado por el coordinador general y jefe del Gabinete Social, ministro Hugo Cáceres, y la ministra de la SPL, Ladislaa Alcaraz de Silvero.
+Estuvieron presentes además otras altas autoridades de ambas carteras del Estado.
+El ministro Hugo Cáceres señaló que este convenio permitirá la difusión del idioma guaraní, promoviendo su uso en documentos relacionados con el Sistema de Protección Social.
+Asimismo, estuvieron presentes el decano de la Facultad de Filosofía de la UNA, Ricardo Pavetti, y la directora del Instituto Superior de Lenguas de la FF-UNA, Valentina Canese.
+Así como altas autoridades, referentes académicos y de la lingüística, entre otros.
+El Congreso arrancó con la conferencia magistral “Desafíos para la investigación en lingüística aplicada: una mirada desde el Instituto Superior de Lenguas de la UNA”, a cargo de la directora del ISL, Valentina Canese.
+Luego se dio inicio al primer panel sobre “Políticas Lingüísticas del Paraguay: avances de la normalización y normativización lingüística, desde la perspectiva de la Ley 4252/10, De Lenguas”, que tuvo como panelistas a la ministra de la SPL, Ladislaa Alcaraz de Silvero; el presidente de la Academia de la Lengua Guaraní, Carlos Ferreira.
+La innovadora iniciativa de desarrollar una aplicación gratuita para celular y tablet con sistema Android denominada Guarani Ayvu se trata de un traductor trilingüe (guaraní, castellano e inglés) que inicialmente alojará unas 3.200 entradas con el registro en audio de cada una de las palabras en guaraní.
+El importante proyecto será presentado este jueves 29 de octubre, a las 10:00, de manera virtual vía Zoom y Facebook Live de la Secretaría de Políticas Lingüísticas (SPL) y contará con la presencia de autoridades nacionales y extranjeras, representantes de las entidades involucradas en el proyecto.
+El desarrollo de la app Guarani Ayvu, con un avance del 60%, es posible gracias a la alianza interinstitucional entre la SPL, la Academia de la Lengua Guaraní, el Instituto Superior de Lenguas de la FF-UNA, la ONG de Estados Unidos PopulisTech, con el apoyo del Grupo de Grabaciones en Guaraní.
+Además del traductor trilingüe, guaraní-castellano-inglés, más el audio de todos los términos guaraníes, la aplicación Guarani Ayvu también alojará una serie de temas adicionales para el aprendizaje de la lengua guaraní, tales como el alfabeto, gramática y ortografía, además de contenidos didácticos del guaraní para uso médico, entre otros importantes temas sobre la lengua.
+A la vez, se buscará generar programas académicos que permitan fortalecer la lengua guaraní como parte de la formación intercultural de los docentes, así como propiciar acciones conjuntas de investigaciones relacionadas a la lengua y cultura guaraní.
+Foto de la reunión virtual.
+Comisión del Año Internacional de Lenguas Indígenas sesionó vía Zoom
+En forma telemática, la Comisión Nacional de Conmemoración del Año Internacional de las Lenguas Indígenas sesionó en la mañana de este miércoles sobre un único punto que era la presentación y análisis del anteproyecto de ley que crea la “Comisión Nacional para el Fortalecimiento, la Promoción y la Revitalización de las Lenguas Indígenas del Paraguay”.
+La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, acompañó en la mañana de este lunes la reunió virtual de la Subcomisión de Garantías de Derechos Lingüísticos, de la Comisión Nacional de Conmemoración del Año Internacional de Lenguas Indígenas, para la revisión técnica del anteproyecto de ley sobre cambios de la normativa 6352/19, que crea la Comisión Nacional.
+La reunión de trabajo se realizó mediante la plataforma Zoom de manera telemática.
+Dentro de la visión técnica del anteproyecto se generaron varios espacios de debate sobre el alcance, las formas y el fondo de la mencionada normativa.
+Subcomisión de CNCAILI se reunió vía Zoom
+Cada 23 de setiembre, por disposición de la Asamblea General de las Naciones Unidas, se celebra el Día Internacional de las Lenguas de Señas.
+Comisión nacional de lenguas indígenas sesionó este viernes
+La Comisión Nacional de Conmemoración del Año Internacional de las Lenguas Indígenas sesionó por cuarta vez este viernes a través de la plataforma Zoom.
+Fue para analizar los distintos ejes de gestión y socializar los avances y proyecciones de las diferentes subcomisiones que compone la comisión.
+Durante el encuentro de trabajo se pudo socializar avances de acciones, relacionadas a la implementación de la Ley 6530/20, que otorga el reconocimiento oficial a la lengua de señas paraguaya.
+Asimismo, se presentaron los ajustes del Reglamento Interno de la subcomisión para la consideración de sus miembros y se establecieron acuerdos y compromisos sobre otros temas de interés del grupo colegiado.
+Estuvo también presente el ministro de Senadis, César Martínez, y desde la SPL acompañaron a la ministra la directora general de Planificación Lingüística, Celia Godoy, y el asesor jurídico, Osvaldo Núñez.
+Organizan I Congreso Paraguayo de Lingüística Aplicada
+El Instituto Superior de Lenguas (ISL) de la Facultad de Filosofía de la Universidad Nacional de Asunción (FF-UNA), con el apoyo de la Secretaría de Políticas Lingüísticas, organizan el I Congreso Paraguayo de Lingüística Aplicada (I CONPLA).
+Está previsto para los días 11, 12 y 13 de noviembre del 2020 y contará con la participación de numerosos conferencistas internacionales.
+La organización del importante evento académico entre el ISL y la SPL se enmarca dentro del convenio de cooperación interinstitucional existente entre ambas instituciones.
+Los organizadores del I CONPLA extienden a los interesados el llamado a ponencias que se encuentra abierto hasta el 5 de octubre.
+A través de Zoom, este miércoles se realizó la Segunda Reunión de Cooperación Sur-Sur de Altas Autoridades Iberoamericanas para Avanzar en la Creación del Instituto Iberoamericano de Lenguas Indígenas (IIALI).
+Paraguay participó de dicha reunión a través de la ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero.
+La reunión tuvo como objetivo consensuar el diseño institucional de la propuesta del Programa/Iniciativa del Instituto Iberoamericano de Lenguas Indígenas (IIALI).
+Asimismo, dar a conocer las acciones realizadas y los acuerdos logrados en el marco de la constitución del IIALI.
+La mayoría de las claves utilizadas para los despachos estaban en guaraní.
+Así por ejemplo,
+El guaraní sirvió también para los momentos de solaz y esparcimiento.
+También estuvo en las obras teatrales y las canciones de los grupos musicales que animaban a las tropas dándoles ánimo e infundiéndoles valor.
+Además de una gestión administrativa eficiente y transparente, apostando siempre al uso correcto, honesto y responsable de los recursos públicos que se le asigna.
+La SPL continúa trabajando con la misma fuerza en el cumplimiento de la Ley 4251/10 “De Lenguas”, para honrar los derechos lingüísticos de los ciudadanos paraguayos y proteger el rico patrimonio cultural del país que constituye el plurilingüismo nacional.
+En el siguiente link se puede leer y descargar de manera gratuita el Informe de Gestión SPL 2019 .
+Existen normativas internacionales que garantizan los derechos lingüísticos en Paraguay
+Para usufructuar un derecho, el primer paso es conocerlo, a fin de poder exigir o reclamar en caso de estar violentado.
+En nuestro país rigen varios tratados y acuerdos internacionales referentes a derechos lingüísticos.
+En el siguiente artículo podrás conocer cuáles son.
+Artículo preparado por el asesor jurídico de la Secretaría de Políticas Lingüísticas, Dr. Osvaldo Núñez.
+Ministra de la SPL fue distinguida en el Día de la Mujer Paraguaya
+En coincidencia con el Día de la Mujer Paraguaya, la ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, recibió una distinción por parte del Congreso Nacional en reconocimiento a su labor como mujer dentro del Poder Ejecutivo; asimismo, por su destacada labor en la promoción, difusión y preservación de la educación en nuestro país.
+La anfitriona de la ceremonia fue la senadora de la Nación, Hermelinda Alvarenga de Ortega, la misma hizo énfasis en las huellas que dejaron las homenajeadas.
+Nueve mujeres fueron quienes recibieron la distinción en este día tan especial, en diferentes ramas.
+A su vez, la parlamentaria dio un homenaje póstumo a la “Maestra de corazón” como se refirió a Victorina Espínola de Ruiz Diaz.
+La secretaria de Estado se dedica a la rama de la educación desde hace muchos años y en especial en la formación de maestros.
+Asimismo, desde la SPL encabeza la loable tarea de trabajar a favor de las lenguas y sus hablantes de nuestro país.
+El presidente del Congreso Nacional, Blas Llano, se refirió a la mujer paraguaya que a diario sigue ocupando espacios de relevancia.

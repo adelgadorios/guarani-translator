@@ -3,7 +3,7 @@ Con el propósito de limpiar al país de los vicios de la política, los itaugü
 Unas 50 personas se encuentran en la plazoleta de la parroquía Virgen del Rosario de este distrito manifestando su repudio hacia los políticos corruptos.
 Los itaugüeños quieren demostrar que los paraguayos pueden limpiar el parlamento y por eso se acercaron, con palos de repasar, trapos de piso, escobas y lavandina hasta la plaza parroquial.
 Personas de todas las edades, pero en su mayoría adultos mayores exigen que los corruptos como el senador Oscar González Daher, sigan el mismo camino del diputado José Maria Ibañez y renuncien a su cargo.
-Además, piden  el rechazo del Ejecutivo de las notas reversales de Yacyretá ya aprobadas por el Congreso Nacional.
+Además, piden el rechazo del Ejecutivo de las notas reversales de Yacyretá ya aprobadas por el Congreso Nacional.
 La manifestación se realiza en la plaza parroquial donde fue habilitado un micrófono abierto y se espera que lleguen más personas conforme avance la noche.
 Solicitarán su desafuero
 El diputado Ulises Quintana (Colorado Añeteté) figura entre los 15 nuevos imputados en el marco del megaoperativo contra el narcotráfico efectuado días atrás en Ciudad del Este.
@@ -138,7 +138,7 @@ Obras con temática social suben a escena hoy en Itauguá
 Los alumnos de la Escuela Municipal de Teatro de esta ciudad presentan esta noche dos obras teatrales con tramas sociales.
 Las puestas son ejemplos del crecimiento del género en esta localidad.
 "Alguien tiene que ceder", escrita por Celina Leguizamón y "Ángeles" de Mary Delgado, son las propuestas que se presentarán esta noche desde las 20:00 en el salón Municipal "Don Genaro Rodríguez" de la ciudad de Itauguá.
-Además de interpretaciones, una exposición  fotográfica podrá ser apreciada frente a las instalaciones del municipio.
+Además de interpretaciones, una exposición fotográfica podrá ser apreciada frente a las instalaciones del municipio.
 Aprueban deuda por 30 años
 La Cámara Baja aceptó la nota reversal por la cual cargan sobre la Entidad Binacional Yacyretá (EBY) una millonaria deuda sin respaldo a favor de Argentina.
 Además para financiar Aña Cua se aceptó postergar el pago por territorio inundado a Paraguay.
@@ -441,7 +441,7 @@ Más de 15 mil personas fueron consultadas y trabajó un equipo de más de 100 p
 La encuestadora nacional First Análisis y Estudio, presidida por Francisco Capli, una vez más “ha dado en el clavo, realizando un trabajo profesional".
 La empresa fue contratada por ABC para llevar a cabo las encuestas de “boca de urna”.
 Al respecto, Francisco Capli, comentó que en esta oportunidad trabajó un equipo compuesto por 115 encuestadores, más otros 15 especialistas en computación, recepción de datos y transporte.
-Fueron en total  132 personas.
+Fueron en total 132 personas.
 “O sea, es un equipo grande de gente que se preparó 10 días antes y trabajó mucho”, destacó Capli.
 A lo largo del día generó la incógnita: ¿Quién era el candidato G y quién el K?
 Con esas dos consonantes nombró Capli a los dos postulantes a la presidencia por el Partido Colorado.
@@ -961,7 +961,7 @@ La firma indicó que solo guardan los registros durante seis meses.
 En el mismo sentido informó al juez Alcides Corbeta la empresa Núcleo SA, propietaria de la telefónica Personal.
 Mario Ardissone, asesor legal de Núcleo, respondió al magistrado que solo reconocen dos de los diecinueve números indicados en el oficio judicial como propiedad de la empresa.
 Habilitan parque acuático en Bella Vista Sur
-El parque acuático instalado en la playa del Club de Pesca y Deportes Náuticos de esta localidad será habilitado mañana a las 18:30 con el  corte de cinta por las autoridades distritales de las Colonias Unidas.
+El parque acuático instalado en la playa del Club de Pesca y Deportes Náuticos de esta localidad será habilitado mañana a las 18:30 con el corte de cinta por las autoridades distritales de las Colonias Unidas.
 El Club de Pesca y Deportes Náuticos Bella Vista “FunBeach” y la Municipalidad del distrito apuestan en Itapúa por iniciativas vinculadas al ocio, turismo entretenimiento y deportes náuticos.
 “Es el primero y es único del país, que sumará la oferta de actividades de entretenimiento y diversión con los que cuenta actualmente el club”, informó el gerente propietario de FunBeach, Xabi Baster.
 Comentó que el parque acuático es un atractivo de ocio y diversión para personas de todas las edades, “menores, jóvenes y adultos”, inclusive para personas con discapacidad, al incorporar la inclusividad en la oferta turística de Itapúa”.
@@ -1241,8 +1241,8 @@ Confiscan mercaderías por G. 200 millones
 Efectivos policiales del Departamento Contra Delitos Económicos decomisaron este martes mercaderías por valor de G. 200.000.000 del local comercial San Lorenzo de Encarnación.
 Fue ante la sospecha de que eran productos ingresados de contrabando.
 El allanamiento se realizó en horas de la tarde de este martes, en el citado negocio comercial, ubicado en la calle Mayor Chamorro entre Teniente Barboza y Vicente Fernández de la capital del departamento de Itapúa.
-Conforme a las fuentes policiales, los intervinientes se incautaron en total 217 cajas de vino de diferentes marcas, 12 cajas de aceite de las marcas "Girasol", "Cocinero" e "Ideal", 106 fardos de jabón en polvo de distintas  marcas y 60 cajas de puré de tomate "San Remo"
-El procedimiento culminó a las 16:30 y todos los productos incautados  quedaron a disposición del Ministerio Público.
+Conforme a las fuentes policiales, los intervinientes se incautaron en total 217 cajas de vino de diferentes marcas, 12 cajas de aceite de las marcas "Girasol", "Cocinero" e "Ideal", 106 fardos de jabón en polvo de distintas marcas y 60 cajas de puré de tomate "San Remo"
+El procedimiento culminó a las 16:30 y todos los productos incautados quedaron a disposición del Ministerio Público.
 Falta oxígeno, peces mueren
 Animales de diferentes especies luchan por sobrevivir en el río Paraguay, en Itá Enramada.
 Desde el Ministerio del Ambiente afirman que se trata de un fenómeno en el que plantas acuáticas consumen el oxígeno, lo que les causa la agonía y muerte.
@@ -1305,7 +1305,7 @@ Subió el precio del gas
 El precio del gas licuado de petróleo aumentó cerca del 5%, se encareció aproximadamente G. 4.000 la garrafa de 10 kilogramos y unos G. 5.000 la de 13 kilogramos, según pudimos constatar esta noche en un recorrido por locales de expendio.
 El precio del gas en garrafa es variable de en un servicentro a otro.
 En un local observamos que el producto de 10 Kg. estaba en G. 67.000 pero ayer aumentó a G. 71.000; mientras que la de 13 de G. 87.500 pasó a G. 92.500.
-En otro local verificamos que de G. 72.000 pasó a G. 76.000 la de 10 kilogramos;  a su vez, la garrafa de 13 que estaba en G. 93.000 pasó a G. 98.000.
+En otro local verificamos que de G. 72.000 pasó a G. 76.000 la de 10 kilogramos; a su vez, la garrafa de 13 que estaba en G. 93.000 pasó a G. 98.000.
 Solo en una estación nos dijeron que la garrafa se vendía al precio viejo todavía, a G. 70.000 la de 10 kilogramos y G. 90.000 la de 13 kilogramos.
 En cuanto al GLP para vehículos, constatamos en uno de los sitios de expendio que de G. 3.890 por litro pasó a G. 4.180.
 Consultado sobre este tema el viceministro de Comercio, Oscar Stark, dijo que el precio del gas es libre y normalmente hay diferencia entre las empresas, pero que el MIC no verificó aún los aumentos.
@@ -1900,7 +1900,7 @@ El fisco informó que para las actividades del Grupo Lince serán destinados G. 
 Señala asimismo que más de G. 18.000 millones están previstos para el Servicio de Apoyo Táctico y Tecnológico de la Policía Nacional y G. 2,3 billones para el Plan Estratégico Policial.
 Hacienda asegura que, de esta manera, se buscará “mejorar las condiciones” de seguridad en todos los sectores del país.
 Yabebyry se prepara para festejar su aniversario
-La comunidad de Yabebyry se apresta a festejar su  114 aniversario fundacional con varias actividades que se pondrán en marcha desde la mañana del viernes 12 de enero.
+La comunidad de Yabebyry se apresta a festejar su 114 aniversario fundacional con varias actividades que se pondrán en marcha desde la mañana del viernes 12 de enero.
 Festivales, eventos campestres y asado a la estaca son las propuestas.
 Se tiene prevista la realización de la tradicional carrera de caballos y, por la noche, se pondrá en marcha el festival organizado por la municipalidad a cargo del intendente colorado Ignacio Brizuela y el apoyo de otros municipios del departamento de Misiones.
 También está prevista la realización de la expoferia, para dar oportunidad a los productores locales y regionales para que comercialicen sus creaciones y rubros de renta.
@@ -2025,7 +2025,7 @@ La camioneta que transportaba al exparlamentario fiel a Horacio Cartes y a su hi
 Óscar González Daher y su hijo son oficialmente los civiles número 31 y 32 que guardan reclusión en la Agrupación, de una población total de 151 presos, entre uniformados y civiles.
 En ese lugar también están recluidos algunos miembros del Primer Comando Capital, el autodenominado Ejército del Pueblo Paraguayo (EPP).
 En ese sitio también está recluido Reinaldo Cabaña alias Cucho, presunto narcotraficante recientemente aprehendido en un operativo antidrogas.
-Todos estos son considerados reclusos con peligrosidad  de fuga, por lo que no pueden convivir con presos comunes, y requieren de una prisión de mayor seguridad.
+Todos estos son considerados reclusos con peligrosidad de fuga, por lo que no pueden convivir con presos comunes, y requieren de una prisión de mayor seguridad.
 Lanzan la Expo Cuero Atyra 2018
 La 14 Edición de la Expo Cuero Atyrá 2018 se llevará a cabo del 28 de setiembre al 4 de octubre, en la Plaza de los Héroes, en el marco de los festejos patronales y fundacionales.
 La 14º edición de la Expo Cuero Atyrá se llevará a cabo a partir del 28 de setiembre próximo en la Plaza de los Héroes, en el horario de 8:00 a 00:00.
@@ -2297,8 +2297,8 @@ Pelopincho rechaza víveres
 Los pobladores del barrio Pelopincho de Asunción ratificaron su postura de no aceptar los víveres, provenientes de la extorsión del autodenominado Ejército del Pueblo Paraguayo (EPP) a familias menonitas que esperan el retorno de dos secuestrados.
 El tradicional rincón capitalino muchas veces estigmatizado, dio una muestra de dignidad al rechazar los víveres que debían ser entregados por los familiares de los secuestrados Franz Hiebert y Bernhard Blatz, como una de las condiciones impuestas por el grupo criminal.
 Marcelo Puentes, titular de la Comisión Vecinal, remarcó que al complejo habitacional no ingresará nada que que tenga relación con el EPP, tal y como ocurrió en 2015.
-“Consideramos que Pelopincho esta haciendo un gran trabajo para cambiar su imagen, nos podrán tildar de  delincuentes y drogadictos y otras cosas desagradables, pero ya no queremos ser relacionados con cosas negativas”.
-Puentes refirió que mantuvo un diálogo con familiares de los secuestrados y como muestra de apoyo, organizarán una jornada de oración este miércoles a partir de las 20:00, reiterando el pedido de libertad  Franz Hiebert y Bernhard Blatz.
+“Consideramos que Pelopincho esta haciendo un gran trabajo para cambiar su imagen, nos podrán tildar de delincuentes y drogadictos y otras cosas desagradables, pero ya no queremos ser relacionados con cosas negativas”.
+Puentes refirió que mantuvo un diálogo con familiares de los secuestrados y como muestra de apoyo, organizarán una jornada de oración este miércoles a partir de las 20:00, reiterando el pedido de libertad Franz Hiebert y Bernhard Blatz.
 Con esta postura, Puentes espera que el barrio deje de ser mencionado cuando existen secuestrados, en ese sentido aclaró que los menonitas pueden hacer entrega en otros sectores aledaños, como la zona del Parque Caballero.
 El dirigente sostuvo además que mas allá de las necesidades que tienen al tratarse de una comunidad postergada, pero no somos una comunidad hambrienta, agregó.
 Un grupo de vecinos de la zona optó por recibir los víveres, alegando que si esto permite la pronta libertad de los secuestrados, “bienvenido sea”, otros manifestaron su aceptación con el popular dicho “lo de arriba no golpea”.
@@ -2597,7 +2597,7 @@ Según Ferreiro, se espera que para abril se alcance el pico máximo de familias
 Ahora el río ya está en 5,10 metros, dentro del citado nivel.
 Fueron aproximadamente 2.000 las familias que ya habían dejado los espacios públicos que ocupaban para volver a sus casas en los bañados.
 Estas nuevamente volverían a las plazas y refugios ante la crecida.
-Dentro de este marco,  la Comuna inauguró hoy la primera Clínica móvil que cuenta con tres consultorios a bordo de un bus.
+Dentro de este marco, la Comuna inauguró hoy la primera Clínica móvil que cuenta con tres consultorios a bordo de un bus.
 Los mismos están equipados para las especialidades de ginecología y obstetricia, odontología, y Clínica familiar.
 La Essap debe pagar por sus chapucerías
 “Le avisamos a la Essap que la Municipalidad ya terminó en partes un excelente recapado en la avenida Santísima Trinidad, y que pueden enviar a los martilletes a hacer con ellos las zanjas de costumbre.
@@ -2636,8 +2636,8 @@ Señaló que ya suman 46 casos de feminicidio en Paraguay en lo que va del año,
 Prioridad para votar
 Los electores con discapacidad, adultos mayores, mujeres embarazadas y mujeres con lactantes en brazos tendrán prioridad en los locales de votación mañana durante las elecciones internas.
 Los Artículos 207 y 217 del Código Electoral disponen entre otras cosas que los electores con discapacidad, adultos mayores, mujeres embarazadas y mujeres con lactantes en brazos deben tener prioridad para votar.
-Según la Justicia Electoral serán aplicados este domingo 17 de diciembre durante las  internas partidarias.
-El Artículo 207 de la misma reglamentación,  establece que; los electores votarán en el orden de su llegada, para cuyo efecto deberán formar fila de a uno.
+Según la Justicia Electoral serán aplicados este domingo 17 de diciembre durante las internas partidarias.
+El Artículo 207 de la misma reglamentación, establece que; los electores votarán en el orden de su llegada, para cuyo efecto deberán formar fila de a uno.
 Guaireños celebran renuncia de Ibáñez
 Jóvenes autoconvocados a través de redes sociales se congregan en la plaza de los Héroes, frente a la Municipalidad de la capital guaireña.
 Al son de la canción Patria Querida, poco más de 100 jóvenes con banderas y pancartas celebraron la renuncia de por lo menos uno de los diputados corruptos, en este caso el ladrón confeso José María Ibáñez (ANR).
@@ -3216,7 +3216,7 @@ Su reemplazante en el cargo será el comisario principal Enrique Darío Benítez
 Fuentes afirmaron que los enfrentamiento a pedradas registrados la tarde de ayer entre los hinchas de Cerro Porteño y Sportivo Luqueño, que dejó varios vehículos dañados y puso en riesgo la seguridad de la gente, fue la causa que motivó la destitución de Huerta Denis.
 Por otra parte el comandante de la Policía realizó otras movidas estratégicas dentro de la cúpula policial, que afectaron principalmente a la Policía de Asunción.
 A través de la Resolución N° 296, nombró al comisario general Vidal Achucarro Peralta como nuevo Director de Policía de Asunción, en sustitución del comisario general Fernando Antonio Lugo Benítez.
-Así también y mediante de la misma resolución,  Lugo Benítez pasará a ocupar la titularidad de la Policía Científica y Técnica, en reemplazo del comisario general Jorge Fernández Arévalos y este último ocupará el puesto que Achucarro deja vacante, que es el de la Jefatura policial de Caazapá.
+Así también y mediante de la misma resolución, Lugo Benítez pasará a ocupar la titularidad de la Policía Científica y Técnica, en reemplazo del comisario general Jorge Fernández Arévalos y este último ocupará el puesto que Achucarro deja vacante, que es el de la Jefatura policial de Caazapá.
 Por otra parte, y mediante la resolución N° 298, el titular de la Policía Nacional nombró al comisario principal Elizardo Rojas Cabrera como jefe de Seguridad Ciudadana de la Policía de Asunción, en lugar del comisario principal Víctor Óscar Romero Sánchez.
 Ahora se confirma que, como se mencionó en investigaciones previas, los teléfonos de Cartes y López Moreira también estuvieron en contacto con Sotelo.
 Campesinos quieren dinero en “piñata”, dice ministro del MAG
@@ -3399,7 +3399,7 @@ El Obispo Monseñor Ricardo Valenzuela se refirió esta mañana a la devastació
 Al respecto subrayó: “lo que pasa en el Amazonas y en el Chaco no es un asunto meramente local, sino de alcance global.
 Si esos lugares sufren, el mundo sufre".
 El Banco Central del Paraguay realizó hoy, jueves, la cuarta edición de la feria de Educación Económica y Financiera, con un impacto de aproximadamente 1.200 estudiantes de 30 instituciones educativas que participaron de las diversas jornadas.
-En la ocasión, los jóvenes aprendieron conceptos básicos sobre uso del dinero y las regulaciones del sistema financiero, esto a través de actividades diversas y  juegos interactivos.
+En la ocasión, los jóvenes aprendieron conceptos básicos sobre uso del dinero y las regulaciones del sistema financiero, esto a través de actividades diversas y juegos interactivos.
 Entre las dinámicas se incluyeron postas, competencias, ronda de preguntas y otros juegos para instruir conceptos como la detección de billetes falsos, aprender a usar el cajero automático, el POS y las tarjetas de débito y crédito, además se realizaron de charlas sobre el valor del dinero, el ahorro, las funciones y objetivos del BCP, entre otros.
 La actividad se realiza en el marco de la Semana Internacional del Dinero “Global Money Week“ y de la Semana Nacional de Educación Financiera en Paraguay.
 La semana de la educación financiera concluirá este sábado 16 de marzo con una kermesse financiera en el ex ferrocarril.
@@ -3437,7 +3437,7 @@ No obstante, dijo que también está la instancia de sus pares diputados, que va
 Un cuestionado en equipo de transición del MOPC
 1154, por la cual dejó conformado el equipo de transición en el ministerio.
 Forman parte del mismo Arnoldo Wiens, Conrado Hoecke, Jorge Vergara, y Genaro Cristaldo, un personaje con oscuros antecedentes en Senasa.
-En setiembre del 2009, la conclusión de una auditoría interna realizada en el Ministerio de  Salud Pública, refería que se habría configurado una estafa por US$ 1.081.958, a través de la contratación de la empresa española Técnica y Proyectos SA (TYPSA).
+En setiembre del 2009, la conclusión de una auditoría interna realizada en el Ministerio de Salud Pública, refería que se habría configurado una estafa por US$ 1.081.958, a través de la contratación de la empresa española Técnica y Proyectos SA (TYPSA).
 INFORME PRELIMINAR DE CONTRALORÍA DE ÉPOCA DE CARTES
 Detectan malversación de bonos del Tesoro en INC
 Auditores encontraron que gran parte de los recursos no fueron utilizados para los fines presupuestados.
@@ -3480,7 +3480,7 @@ Pese a ser la misma causa, hubo postura distinta entre la forma en que Jorge Ovi
 Antes de la votación, Oviedo imploró que acepten su renuncia y dijo que no “delatará” a nadie.
 ABC Color presenta el especial de Elecciones 2018 en el que podrá conocer y comentar los antecedentes de los principales candidatos a la presidencia, a las 17 gobernaciones y al Senado.
 El material pretende ayudar a emitir el voto consciente.
-Los lectores que ingresen a Elecciones Generales 2018  podrán ver los antecedentes de los principales candidatos al Senado, a las 17 gobernaciones del país y a los principales candidatos a la presidencia y vicepresidencia de la República.
+Los lectores que ingresen a Elecciones Generales 2018 podrán ver los antecedentes de los principales candidatos al Senado, a las 17 gobernaciones del país y a los principales candidatos a la presidencia y vicepresidencia de la República.
 Algunos de los datos que se pueden apreciar son los antecedentes judiciales, un breve currículum político, un resumen de la historia de vida de los candidatos y desde hace cuántos años se desempeñan como legisladores.
 Este material que hoy sale a la luz quiere ser una herramienta para los electores que el próximo 22 de abril decidirán quiénes serán las próximas autoridades que regirán dos de los Poderes del Estado en los próximos 5 años.
 Es por eso que incluimos en una sección a los “Caraduras”, aquellos candidatos que se presentan y son cuestionados por su desempeño en el Legislativo o en los cargos que ocuparon con anterioridad.
@@ -3497,7 +3497,7 @@ La Asociación de Docentes Jubilados de Atyrá y la familia Saldívar, hijos de 
 Cientos de personas disfrutaron un delicioso jopara y caldo de matambre.
 Espantar al Karai Octubre fue la consigna de los docentes jubilados, quienes prepararon dos ollas de 30 litros de jopara con verduras y puchero.
 Así mismo la familia Saldívar, hijos de curtiembreros preparó una olla de 50 litros de caldo de vaquero (matambre).
-Ambos platos fueron  servidos en forma gratuita a más de 400 personas que se acercaron a la plaza para compartir el delicioso menú tradicional.
+Ambos platos fueron servidos en forma gratuita a más de 400 personas que se acercaron a la plaza para compartir el delicioso menú tradicional.
 Un conflicto se registra desde hace unos días entre un grupo de agricultores y el empresario agrícola Plinio Pereira.
 La situación es delicada y compleja, y puede agravarse si es que a estos productores no se les permite cosechar su soja, afirmó, Diego Pérez, titular de la Junta Municipal de San Rafael del Paraná, quien intenta mediar en el conflicto.
 La comitiva estuvo integrada por la intendenta, Gladis Rivarola, algunos concejales municipales y departamentales.
@@ -3602,7 +3602,7 @@ CAP pide a Benigno insistir en calidad del gasto público
 Autoridades de la Cámara de Anunciantes del Paraguay (CAP) pidieron esta tarde al futuro ministro de Hacienda, Benigno López, que establezca una mesa de diálogo público privada, para apuntar hacia una mayor calidad del gasto público.
 Crear en el próximo gobierno un sistema de participación del sector privado que permita analizar temas como la financiación de las obras de infraestructura y de desarrollo, la política fiscal, la lucha contra la evasión tributaria fue solicitado al futuro ministro de Hacienda, Benigno López, en la reunión con los directivos de la CAP.
 Así informó el directivo del gremio, Rubén Ramirez Lezcano, al concluir la reunión.
-Por su parte, Benigno López, dijo que las conversaciones fueron sobre temas generales, sobre la gestión que desempeñó al frente del IPS y también sobre su futura  gestión al  frente de Hacienda.
+Por su parte, Benigno López, dijo que las conversaciones fueron sobre temas generales, sobre la gestión que desempeñó al frente del IPS y también sobre su futura gestión al frente de Hacienda.
 Abdo felicita a paraguayas
 El presidente de la República, Mario Abdo Benítez, felicitó a las mujeres paraguayas en su día a través de una publicación en su cuenta de Twitter.
 También su esposa, Silvana López Moreira de Abdo, saludó a sus congéneres en este día.
@@ -3625,7 +3625,7 @@ El gobierno paraguayo y la Organización de las Naciones Unidas para la Agricult
 En representación del gobierno rubricó los documentos el ministro de Relaciones Exteriores, Luis Alberto Castiglioni y en representación de la FAO en nuestro país, Jorge Alberto Meza Robayo.
 También se firmó una cooperación para planes de desarrollo e inversión para la inclusión socioproductiva de comunidades indígenas.
 Este instrumento contribuirá al proceso de elaboración del Plan Nacional de Pueblos Indígenas (PNPI), según explicaron en Cancillería.
-Finalmente,  está el proyecto de inclusión productiva para la reducción de la pobreza en el Paraguay, que fortalecerá la capacidad de las organizaciones del sector público para aplicar políticas, estrategias, marcos normativos y planes de inversión para desarrollar sistemas agrícolas y alimentarios inclusivos y eficientes, conforme destacaron.
+Finalmente, está el proyecto de inclusión productiva para la reducción de la pobreza en el Paraguay, que fortalecerá la capacidad de las organizaciones del sector público para aplicar políticas, estrategias, marcos normativos y planes de inversión para desarrollar sistemas agrícolas y alimentarios inclusivos y eficientes, conforme destacaron.
 Castiglioni dijo en un discurso que las cooperaciones serán muy útiles para "desarrollar adecuadamente las capacidades de nuestra gente para vencer a la pobreza”.
 Lento avance del tren de cercanías
 Roberto Salinas, presidente de Ferrocarriles del Paraguay (Fepasa) expresó que se está trabajando arduamente en el proceso prelicitatorio para la realización del tren de cercanías.
@@ -3787,7 +3787,7 @@ Para eso, es preciso que la honestidad y el patriotismo primen en el ánimo de n
 Ruinas de Humaitá son "Bien del Patrimonio Cultural Nacional"
 Las Ruinas de Humaitá fueron declaradas "Bien del Patrimonio Cultural Nacional" por la Secretaría Nacional de Cultura.
 La determinación ministerial da una inmediata respuesta al pedido formulado anoche por el intendente Víctor Bordoli y los gestores culturales de Ñeembucú.
-La resolución fue entregada a las autoridades comunales y gestores culturales por el ministro Fernando Griffith, durante el acto realizado hoy  en la histórica ciudad de Humaitá.
+La resolución fue entregada a las autoridades comunales y gestores culturales por el ministro Fernando Griffith, durante el acto realizado hoy en la histórica ciudad de Humaitá.
 Tengo que comprar medicamentos.
 Tengo la columna lastimada en tres partes.
 No puedo trabajar.
@@ -4113,7 +4113,7 @@ La agencia oficial no ofreció más detalles sobre posibles objetivos alcanzados
 Exagente de Inteligencia de Colombia, hoy embajador ante Paraguay
 El exmilitar colombiano Javier Alberto Flórez Aristizábal es el nuevo embajador de Colombia en Paraguay.
 Fue uno de los líderes del proceso de paz y antes participó de misiones en las que cayeron muertos jefes guerrilleros.
-El pasado jueves, Javier Alberto Flórez Aristizábal  presentó sus cartas credenciales ante el presidente paraguayo Horacio Cartes, tras haber sido designado por el gobierno de su país como el nuevo embajador de Colombia en Paraguay.
+El pasado jueves, Javier Alberto Flórez Aristizábal presentó sus cartas credenciales ante el presidente paraguayo Horacio Cartes, tras haber sido designado por el gobierno de su país como el nuevo embajador de Colombia en Paraguay.
 El acto protocolar tuvo lugar en el Palacio de López.
 Tras décadas de servicio, ahora opta por la diplomacia y representa a su país ante Paraguay.
 SEN: mañana llegará la asistencia a San Pedro
@@ -4154,7 +4154,7 @@ Paraguay ocupa el puesto 64 en la calificación mundial, donde México es el pa�
 Los primeros tres países en este escalafón son: Finlandia, Noruega y Dinamarca, tres países nórdicos con gran crecimiento económico y altos índices de igualdad.
 Paraguay tiene bajos niveles de calidad de vida, generosidad y oportunidades para conseguir cambios de vida, según los índices.
 Nuestro país ocupó el puesto 68 entre 2008 y 2010.
-Sin embargo,  tiene un alto nivel de “índice afectivo”, el primero en América Latina.
+Sin embargo, tiene un alto nivel de “índice afectivo”, el primero en América Latina.
 NICANOR A YACYRETÁ Y JOSÉ ALBERTO ALDERETE A ITAIPÚ
 Marito usa a binacionales para pagar deudas políticas
 Expresidente Duarte Frutos será director de la EBY, y exministro y jefe de campaña de Abdo, de Itaipú.
@@ -4204,7 +4204,7 @@ Mario Abdo llega a la sede del Partido Colorado
 Pasadas las 18:00, Marito Abdo Benítez llegó a la Junta de Gobierno de la ANR, y se espera que dé un mensaje a sus adherentes.
 El candidato presidencial de la ANR, Mario Abdo Benítez, ya está en la "Casa de los Colorados".
 Llegó con su círculo de colaboradores más cercanos y está reunido con la cúpula colorada en el despacho del titular de la ANR, Pedro Alliana.
-A estas horas es importante la cantidad de partidarios suyos que se acercan para apoyar a quien lidera la votación hasta  el momento, según los resultados preliminares del Tribunal Superior de Justicia Electoral.
+A estas horas es importante la cantidad de partidarios suyos que se acercan para apoyar a quien lidera la votación hasta el momento, según los resultados preliminares del Tribunal Superior de Justicia Electoral.
 Activan asistencia a paraguayos en Venezuela
 El Ministerio de Relaciones Exteriores informó que fueron activados los mecanismos de asistencia a aquellos compatriotas que residen en Venezuela, luego del anunció del presidente Mario Abdo Benítez de cortar relaciones diplomáticas con este país.
 “Hasta ahora no tuvimos solicitud alguna de asistencia desde Venezuela.
@@ -4868,7 +4868,7 @@ Los nuevos manifestantes alegan que no permitirán la salida de la profesora Cin
 Varios policías, en medio del intenso frío, se encuentran resguardando la comunidad indígena ante el temor de que se pueda producir enfrentamiento entre ambos bandos.
 FNC entrega 30.000 kilos de alimentos para damnificados
 Un total de 30.000 kilos de alimentos entregó hoy la Federación Nacional Campesina (FNC) a la Pastoral Social de la Iglesia Católica para los damnificados, entre mandioca, poroto, pomelo, naranja, mandarina, piña, banana, zapallo, maní, maíz choclo.
-La entrega la hicieron hoy al mediodía miembros del gremio campesino al coordinador de la Pastoral Social, Ricardo González en el predio del  Seminario Metropolitano.
+La entrega la hicieron hoy al mediodía miembros del gremio campesino al coordinador de la Pastoral Social, Ricardo González en el predio del Seminario Metropolitano.
 González dijo que los alimentos serán destinados a damnificados de Asunción, entre esta tarde y mañana puesto que se trata de productos perecederos.
 Para ello ya contactaron con los referentes de los asentamientos de damnificados para coordinar la entrega y distribución.
 Marcial Gómez, secretario general adjunto de la FNC, dijo que los alimentos fueron trasladados en cuatro camiones desde cuatro departamentos donde están apostados asentamientos conquistados por los campesinos en lucha por la tierra.
@@ -5245,7 +5245,7 @@ Su propio abogado dijo que ahora hay que juzgarlo por homicidio y que eso debe i
 “Piloto” es un narco brasileño del “Comando Vermelho”, 50 de cuyos miembros habrían ingresado al país.
 Fiesta de la Tradición Misionera genera expectativa
 La Fiesta de la Tradición de Misionera genera mucha expectativas en la población de Santiago y otros distritos del departamento de Misiones, señaló el intendente santiagueño Ignacio Larre (PLRA).
-Larre dijo que esta tradicional fiesta, que se pondrá en marcha este domingo y se extenderá hasta el 27 de enero, es un evento que  pertenece a todos los misioneros, porque "permite mantener vivas las costumbres del campo de tierra adentro en medio del avance continuo de la tecnología".
+Larre dijo que esta tradicional fiesta, que se pondrá en marcha este domingo y se extenderá hasta el 27 de enero, es un evento que pertenece a todos los misioneros, porque "permite mantener vivas las costumbres del campo de tierra adentro en medio del avance continuo de la tecnología".
 "No es fácil llegar a 40 años de la Fiesta de la Tradición Misionera, acá se demuestra que el trabajo que se realizó durante mucho tiempo, fue algo muy serio.
 Este evento que arranco en 1979 con el nombre de “fogón leonístico” se convirtió en la fiesta de los 'misionenses' y en poco tiempo se llamó 'Fiesta de la Tradición Misionera'", explicó.
 Cada enero, la comunidad santiagueña se prepara para recibir a turistas que vienen de todo Paraguay y de los países vecinos para ver al hombre de campo demostrar su destreza con los animales.
@@ -5274,7 +5274,7 @@ El último consejo fue alejarse de los vicios como el tabaquismo.
 Luego llegó el momento esperado para Miguela Ayala, quien fuera trasplantada el 10 de febrero de 2015.
 Emocionada, bailó el vals con los médicos y con su padre Calixto Ayala.
 La madre de la quinceañera, Jacinta Varela, agradeció al plantel médico no solo por los cuidados profesionales, sino también por dedicar su tiempo en celebrarle el cumpleaños sorpresa.
-Al final de la fiesta llegó el cantante Javier Zacher, de la banda de latin rock "Salamdra", quien  sorprendió a la chica con varios temas de la agrupación como Solito, Lo que me gusta de tí, entre otros.
+Al final de la fiesta llegó el cantante Javier Zacher, de la banda de latin rock "Salamdra", quien sorprendió a la chica con varios temas de la agrupación como Solito, Lo que me gusta de tí, entre otros.
 Vuelve a subir el Pilcomayo
 El río Pilcomayo volvió a subir en estos días tras las intensas lluvias caídas en la zona de la cuenca alta, en Bolivia, y este martes, a las 17.00, se situó en 6,72 metros a la altura del puente Misión La Paz (ARG)-Pozo Hondo.
 Así lo informó a nuestro diario el presidente de la Comisión Vecinal del lugar, Alberto Jaime, quien dijo que el dato fue corroborado por una entidad conocida como Evarsa, que trabaja en el monitoreo del comportamiento del Pilcomayo y sus efectos sobre el ecosistema del Chaco, principalmente en el lado argentino.
@@ -5319,7 +5319,7 @@ Ley de cine vuelve al Senado
 La Cámara de Diputados aprobó con modificaciones el proyecto de Fomento al Audiovisual conocido como “Ley de Cine”.
 La norma vuelve a la Cámara Alta, donde los senadores definirán si aceptan los cambios o ratifican su proyecto original.
 Los diputados plantean la creación de un Instituto Nacional del Audiovisual Paraguayo (INAP) como órgano técnico especializado, con personería jurídica, patrimonio propio y autonomía funcional.
-La iniciativa  se relacionará con el Ejecutivo a través de la Secretaría Nacional de Cultural (SNC).
+La iniciativa se relacionará con el Ejecutivo a través de la Secretaría Nacional de Cultural (SNC).
 Asimismo, proponen la creación de un Consejo Nacional del Audiovisual como el encargado de elaborar la política institucional de INAP, que estará presidido por un director ejecutivo y representantes del Ministerio de Industria, la Secretaría Nacional de Cultura y la Secretaría Nacional de Tecnología de las Comunicaciones (Senatics).
 Todos los cargos serán ad honorem, a excepción del de director.
 El Fondo se nutrirá de asignaciones establecidas en el presupuesto, de aportes, créditos, donaciones y del 50% de las partidas presupuestarias provenientes de las retenciones impositivas derivadas de las operaciones comerciales provenientes de servicios audiovisuales obtenidos por internet del exterior (como Netflix), a ser retenidas por los operadores de tarjetas de crédito y débito.
@@ -5361,7 +5361,7 @@ También es notorio la falta de más médicos y licenciados en el nosocomio.
 Hace una semana, a través de la autogestión de los funcionarios, directivos y la organización civil, lograron mejorar un pabellón destinado exclusivamente para niños y jóvenes.
 Paredes pintadas con diseños infantiles, consultorios ambientados, cambiadores para bebés, espacio de juegos, son algunas de las mejoras hechas.
 Durante el acto inaugural el ministro de Salud, Julio Mazzoleni, manifestó que "el trabajo que se realiza en el CAES será gradual".
-Reconoció  "los requerimientos de la ciudadanía" y se comprometió a mejorar el lugar.
+Reconoció "los requerimientos de la ciudadanía" y se comprometió a mejorar el lugar.
 Mazzoleni señaló que fortalecerá el centro con más personal de blanco y equipos médicos.
 Aseguró que todas las guardias ya están cubiertas en el sector de urgencias.
 Dijo además que, "uno de los próximos objetivos es lograr equipar un área para tener internación de baja complejidad inicialmente y habilitar otra vez un quirófano para partos".
@@ -5802,7 +5802,7 @@ Según los escrachadores, el diputado se encontraba en una vivienda en compañí
 Los indignados también cuestionaron al político su labor como gobernador del primer departamento.
 Déficit fiscal en 0,5% al primer semestre
 Al cierre del primer semestre del 2018, el déficit fiscal registrado por la Administración Central se ubica en 0,5% del Producto Interno Bruto (PIB), según el Informe de Situación Financiera (Situfin), que dio a conocer Hacienda.
-Con este resultado, el déficit anualizado se ubicó en -1,3% del PIB, porcentaje que se encuentra por debajo de los límites de la Ley de Responsabilidad Fiscal (LRF), detalló  en conferencia de prensa Viviana Casco, directora de Política Macro Fiscal del Ministerio de Hacienda.
+Con este resultado, el déficit anualizado se ubicó en -1,3% del PIB, porcentaje que se encuentra por debajo de los límites de la Ley de Responsabilidad Fiscal (LRF), detalló en conferencia de prensa Viviana Casco, directora de Política Macro Fiscal del Ministerio de Hacienda.
 El cálculo, según explicó, aún no incorpora el nuevo año base actualizado por el Banco Central, para estar en concordancia con lo presupuestado inicialmente para este periodo.
 No obstante, adelantó que para el estudio del Presupuesto General de la Nación 2019 ya se incorporaría la nueva base del PIB.
 En lo que respecta al ajuste del salario mínimo que entra en vigencia para este mes en el sector privado, recién será incorporado para el sector público con el presupuesto 2019, dijo Casco.
@@ -5818,9 +5818,9 @@ El acto protocolar de gran envergadura fue realizado en la plaza Bartolomé Aqui
 El acto solemne inició con las palabras del presidente del Tribunal Electoral de la Circunscripción judicial del Caaguazú Carlos Echauri, quién explicó que el evento sólo es una réplica de lo que se hizo en Coronel Oviedo.
 Explicó que Rios juró el miércoles pasado en el ante despacho de la Gobernación.
 Entre otras cosas Alejo Ríos mencionó que buscará mejorar el sistema de educación, salud, infraestructura y un acompañamiento de cerca a los productores del departamento.
-Es cierto que Añetete recibió demasiado en el primer periodo parlamentario, es lógico que para este periodo tuviéramos que dar uno o dos pasos atrás para posicionarnos para en una próxima mesa directiva tener mejores resultados",  dijo esta mañana a ABC Cardinal el senador Silvio 'Beto' Ovelar, quien presidirá el Congreso hasta el 1 de julio.
+Es cierto que Añetete recibió demasiado en el primer periodo parlamentario, es lógico que para este periodo tuviéramos que dar uno o dos pasos atrás para posicionarnos para en una próxima mesa directiva tener mejores resultados", dijo esta mañana a ABC Cardinal el senador Silvio 'Beto' Ovelar, quien presidirá el Congreso hasta el 1 de julio.
 En otro momento justificó el acuerdo abdollanocartista que llevará al liberal Blas Llano como presidente del Congreso Nacional, cuando a él le toque dejar el cargo.
-Dijo que Añetete aprovecha la división que hay en el Partido Liberal para acordar con un sector y conseguir  gobernabilidad.
+Dijo que Añetete aprovecha la división que hay en el Partido Liberal para acordar con un sector y conseguir gobernabilidad.
 Designan viceministro del MOPC
 A través de su cuenta de Twitter, Arnoldo Wiens anunció la designación economista Carlino Velázquez quien lo acompañará como viceministro de Administración y Finanzas del Ministerio de Obras Públicas y Comunicaciones (MOPC).
 El anuncio fue hecho en la tarde de este viernes por parte del exsenador Arnoldo Wiens, quien comentó que se encontraba “agradecido”, con el economista Carlino Velázquez por aceptar su ofrecimiento "la responsabilidad y el compromiso", de acompañarlo como segundo al mando en el Ministerio de Obras Públicas y Comunicaciones (MOPC).
@@ -6387,7 +6387,7 @@ El operativo se realizó a las 11:20 en el Kilómetro 19 de la ruta que une la c
 Conforme a los datos policiales, la comitiva fiscal-policial seguía de cerca a dos camionetas que iban una detrás de otra hacia Alberdi, y al llegar al Km.
 Cuando la abrieron, hallaron en su interior varios billetes de la moneda estadounidense que totalizaron 140.000 dólares.
 También encontraron un revólver calibre 38 marca Rossi, con diez cartuchos, que fue incautado.
-El procedimiento se realizó en presencia de la fiscala de Villeta, Mirtha Rivas, y  el asesor jurídico de la Dirección del Área Central, suboficial inspector Antonio Sosa.
+El procedimiento se realizó en presencia de la fiscala de Villeta, Mirtha Rivas, y el asesor jurídico de la Dirección del Área Central, suboficial inspector Antonio Sosa.
 También se dio participación al jefe del Departamento Especializado contra el Lavado de Dinero y Financiamiento del Terrorismo, comisario principal Édgar Suárez.
 Gobernación de Central habilita dos comedores
 La Gobernación del Departamento Central habilitó este jueves dos cocinas y comedores en escuelas de esta ciudad.
@@ -6579,7 +6579,7 @@ Un grupo de manifestantes de la Comisión Escraches intentó llegar hasta la res
 Un grupo de ciudadanos se convocó para llegar a la vivienda de Velázquez, ubicada en Isaac Kostianosvky 6060 casi RI 3 Corrales, pero no pudieron hacerlo debido a que la Policía se lo impidió.
 Con carteles y los tradicionales rollos de papel higiénico, el grupo continuó con la seguidilla de manifestaciones contra referentes del gobierno.
 En la reunión con Abdo Benítez participaron, entre otros, los empresarios Víctor González Acosta y Beltrán Macchi y el periodista Luis Bareiro, integrantes del FEEI.
-Consultado acerca de más detalles de la iniciativa, González Acosta explicó que se trata de la conformación de  consejos de desarrollo para que todos participen en el proceso de debates.
+Consultado acerca de más detalles de la iniciativa, González Acosta explicó que se trata de la conformación de consejos de desarrollo para que todos participen en el proceso de debates.
 El empresario señaló que le solicitaron a Abdo que lidere el proceso de transformación educativa.
 Indicó que la educación debe convertirse en una cruzada nacional, para que los niños y jóvenes se conviertan en actores claves del desarrollo.
 Recordó que los últimos informes de organismos internacionales refieren que en el Paraguay 6 de cada 10 chicos no pueden terminar el colegio.
@@ -6639,7 +6639,7 @@ El Juzgado ordena además que Chimenes Pavão siga recluido en la Agrupación Es
 El juez que tomó esta decisión es Cresencio Ocampos, quien tiene el teléfono celular apagado y que, según fuentes a las que accedió ABC Color, supuestamente tiene vacaciones desde este martes.
 Reinician las mingas ambientales para erradicar el dengue
 Funcionarios del Servicio Nacional de Erradicación del Paludismo (Senepa), del hospital distrital y estudiantes de enfermería dieron apertura hoy a la campaña de lucha contra el dengue.
-Las actividades, que consisten en mingas ambientales, se iniciaron esta mañana a pesar del mal tiempo en las bases de la villa María Auxiliadora de esta ciudad, pero antes de ingresar al lugar, los responsables de los trabajos realizaron un breve acto, donde instaron a  eliminar los criaderos del mosquito aedes aegypti, transmisor del dengue.
+Las actividades, que consisten en mingas ambientales, se iniciaron esta mañana a pesar del mal tiempo en las bases de la villa María Auxiliadora de esta ciudad, pero antes de ingresar al lugar, los responsables de los trabajos realizaron un breve acto, donde instaron a eliminar los criaderos del mosquito aedes aegypti, transmisor del dengue.
 El presidente de la comisión de lucha contra el citado mal, Lic.
 René González, dijo que es fundamental concienciar a las amas de casa y a todos en general sobre la importancia de la eliminación de los criaderos del insecto vector del dengue para evitar una epidemia, teniendo en cuenta la reaparición del virus que se manifestó en algunos pacientes.
 Junta de Quiindy declara “de interés educativo” el Día de la Amistad
@@ -6902,7 +6902,7 @@ La comitiva se constituyó en el lugar para dar cumplimiento a la orden de allan
 Tras enseñar el mandamiento a Eduardo Lepretti los intervinientes procedieron a catear el negocio, encontrando varios productos sin las documentaciones respaldatorias para su comercialización.
 "Incautamos varias mercaderías de origen argentino y brasileño por carecer de documentación, como azúcar, aceite, golosinas, embutidos, vinos y fuegos artificiales.
 Se estima que el valor de lo incautado asciende a G. 300.000.000", informó el comisario Hugo Rolón, jefe regional del mencionado departamento policial en Encarnación.
-Tras culminar el procedimiento, la fiscal interviniente dispuso que  propietario del negocio se presente mañana ante el Ministerio Público para explicar el origen de las mercaderías incautadas.
+Tras culminar el procedimiento, la fiscal interviniente dispuso que propietario del negocio se presente mañana ante el Ministerio Público para explicar el origen de las mercaderías incautadas.
 Autogestión para seguir ayudando
 Los bomberos voluntarios de la décima segunda compañía de Itauguá, se organizaron una actividad ventas de comidas para poder solventar gastos de los móviles y seguir ayudando a la ciudadanía que lo necesite.
 Los bomberos voluntarios se apostaron al costado de la ruta 2 a la altura del km 30, en el centro mismo de la ciudad, ofreciendo sopa paraguaya, pancho y hamburguesas.
@@ -7050,7 +7050,7 @@ Marcos Rojas ya visitó en más de una ocasión Italia, lo mismo que el Vaticano
 Presenta "tratamiento térmico" para caña dulce
 Presentan producción de semilla de caña de azúcar de alta calidad sanitaria a través de un tratamiento térmico en una jornada de "Día de campo de caña de azúcar" en el Campo experimental de caña de azúcar en esta localidad.
 El Instituto Paraguayo de Tecnología Agraria (IPTA), a través de un convenio de Cooperación con el Centro Azucarero y Alcoholero Paraguayo (CAAP), desarrolló una jornada de "Día de campo de Caña de Azúcar" con la participación de los diferentes cañicultores del Guairá, Caaguazú, Caazapá, Paraguarí y otros departamentos.
-La actividad se inició a tempranas horas con la presentación de los resultados de ensayos, introducción de materiales genéticos y recomendaciones de los trabajos de investigación de la caña de azúcar,  a cargo del Ing. Agr. Fernando Espínosa.
+La actividad se inició a tempranas horas con la presentación de los resultados de ensayos, introducción de materiales genéticos y recomendaciones de los trabajos de investigación de la caña de azúcar, a cargo del Ing. Agr. Fernando Espínosa.
 Asimismo, demostraron el uso de abono orgánico en la producción de la caña, por el Ing. Agr. Francisco Vallejos.
 CASO MESSER EN EL CENTRO DE AGENDA REGIONAL
 Marito proyecta concretar cuatro puentes con Brasil
@@ -7287,7 +7287,7 @@ Repudian la “venta de la patria a Brasil” y haber puesto en riesgo la sobera
 Con carteles y petardos protestan por la firma del acuerdo bilateral y exigen juicio político a los titulares del Poder Ejecutivo.
 La ADEC premia a empresas destacadas
 La Asociación de Empresarios Cristianos (ADEC) premia esta noche a 11 pequeñas y grandes empresas que se diferencian por su aporte social.
-Agroindustrial Guarapi SA, para Lácteos Doña Ángela, es la galardonada  como Empresa del Año 2017 por la Asociación de Empresarios Cristianos (ADEC).
+Agroindustrial Guarapi SA, para Lácteos Doña Ángela, es la galardonada como Empresa del Año 2017 por la Asociación de Empresarios Cristianos (ADEC).
 La ceremonia se está llevando a cabo en las instalaciones del Banco Central del Paraguay (BCP).
 El reconocimiento por el rol social que tienen también alcanza a otras categorías, tales como Jóvenes Empresarios Exitosos, Microempresas y Pymes exitosas, Eficiencia de Clase Mundial, Buenas Prácticas de Responsabilidad Social Empresarial, Exportaciones no Tradicionales y en la categoría Emprendimiento Innovador.
 Durante su discurso inaugural de la premiación, el titular de la ADEC, Juan Luis Ferreira, ahondó sobre la importancia de mejorar el Parlamento, la equidad tributaria, entre otros temas.
@@ -7359,11 +7359,11 @@ Estos cierres de rutas y retención de vehículos ya ha afectado el trabajo y di
 La tripartita entre camioneros y productores está prevista para este lunes a las 10:00 en sede del Ministerio de Trabajo.
 Acuerdo disipa conflicto que amenazaba carnaval encarnaceno
 Juan Pablo Bogarín (ANR), presidente de la Junta Municipal de Alberdi, señaló que -al paso en que va aumentando el nivel del río- estiman que en una semana se alcanzarían los 10 metros.
-La cota normal  es de 3,50 metros.
-Hasta el momento, el muro de contención que rodea la comunidad alberdeña  se encuentra resistiendo, no presentó algún tipo de variación y está siendo monitoreado las 24 horas.
+La cota normal es de 3,50 metros.
+Hasta el momento, el muro de contención que rodea la comunidad alberdeña se encuentra resistiendo, no presentó algún tipo de variación y está siendo monitoreado las 24 horas.
 Como medida de prevención, teniendo en cuenta las lluvias que se pudieran registrar, se está trabajando para contar con generadores eléctricos, a fin de evitar que dejen de funcionar las motobombas si es que se producen cortes en el suministro de energía eléctrica.
 El edil dijo también que, hasta la fecha, no fueron atendidos por la Secretaría de Emergencia Nacional (SEN).
-Ya realizaron reiterados pedidos solicitando asistencia con víveres, colchones y frazadas,  pero los ignoran, según asegura.
+Ya realizaron reiterados pedidos solicitando asistencia con víveres, colchones y frazadas, pero los ignoran, según asegura.
 “La SEN solo tiene ojos para Pilar y no nos hace caso.
 Acá también estamos en una situación muy crítica y existen muchas necesidades”, expresó Bogarín.
 “También pedimos al Ministerio de Obras Públicas para que envíen técnicos para que verifiquen nuestro muro, pero no nos hacen caso”, agregó finalmente.
@@ -7408,7 +7408,7 @@ En cuanto a los cargos de diputación, cuatro bancas serán para el Partido Colo
 De esta manera, serían siete los diputados que representarán a Asunción en Cámara Baja.
 En primer lugar, cuatro colorados: Hugo Ramírez, Danny Durand, Raúl Latorre y Arnaldo Samaniego (perdieron una banca que fue para Central); Patria Querida tendrá a Sebastián Villarejo y Carlos García, como segunda fuerza; y finalmente, el Partido Liberal estará representado por una sola persona, Celeste Amarilla.
 Patria Querida gana espacios
-Luego de un periodo sin representación parlamentaria (la diputada Olga Ferreira se desvinculó del partido), el Partido Patria Querida se  convierte en la segunda fuerza en la Cámara de Diputados, ya que logra meter a un candidato más, aparte de Sebastián Villarejo.
+Luego de un periodo sin representación parlamentaria (la diputada Olga Ferreira se desvinculó del partido), el Partido Patria Querida se convierte en la segunda fuerza en la Cámara de Diputados, ya que logra meter a un candidato más, aparte de Sebastián Villarejo.
 Intendentes recurrirán a encuesta para definir candidato a gobernador
 Mediante la modalidad de la encuesta, intendentes de la oposición en el departamento de Itapúa definirán entre los dos aspirantes a la gobernación de Itapúa con el objetivo de presentar un frente unido ante el candidato colorado.
 Tal fue la decisión adoptada, hoy, durante el segundo plenario de representantes comunales y referentes de la oposición.
@@ -7427,7 +7427,7 @@ De estas tres firmas, BR oficializó sus nuevas tarifas: Eco 85 a G. 4550, Full 
 Según referentes del sector, la petrolera estatal generalmente aguarda a que el sector privado sea el que “tome la iniciativa”, para luego remarcar sus precios.
 Economista califica de "fracaso" al gobierno de Cartes
 El economista Edilberto Núñez calificó de "un fracaso", el gobierno del Presidente de la República Horacio Cartes, en materia de educación, salud, economía y seguridad.
-Debido a que el jefe de Estado brindó su ultimo informe sobre su gestión al Congreso Nacional en este periodo que culmina, el economista  Edilberto Núñez dijo a través de una radio de esta ciudad, que su gobierno "no desarrolló una política efectiva en educación, debido a que no capacita a los jóvenes para trabajar en algún oficio al culminar sus estudios secundarios, pues no son formados como mano de obra calificada", dijo.
+Debido a que el jefe de Estado brindó su ultimo informe sobre su gestión al Congreso Nacional en este periodo que culmina, el economista Edilberto Núñez dijo a través de una radio de esta ciudad, que su gobierno "no desarrolló una política efectiva en educación, debido a que no capacita a los jóvenes para trabajar en algún oficio al culminar sus estudios secundarios, pues no son formados como mano de obra calificada", dijo.
 También señaló que el Ministerio de Salud no cubre las necesidades del pueblo por la falta de medicamentos, insumos y profesionales de blanco.
 Por otra parte indicó que la pobreza "aumentó en un 1,8 %, debido a la falta de fuentes de trabajo y la falta de industrias".
 Señaló que los pequeños agricultores que reclaman la reactivación agraria tampoco tuvieron respuestas positivas del Estado, que "no desarrolló programas de producción de rentas", y sostuvo que los campesinos necesitan de una educación efectiva para enfrentar los desafíos de la economía globalizada.
@@ -7855,7 +7855,7 @@ Más que nunca los pobladores de esta comunidad sufren los efectos del aislamien
 Ahora se suma la avería del servicio de comunicación proveído por la única empresa de telefonía celular que funciona en la zona.
 Desde el domingo Bahía Negra no cuenta con el servicio de telefonía celular de la empresa Tigo, la única que funciona con mayor regularidad.
 Los pobladores del distrito tampoco pueden transitar por los caminos debido a que las lluvias inundaron varios tramos.
-Como si no fuera poco, a la problemática de comunicación se suma que  tampoco pudo llegar en la semana el vuelo de avión del transporte aéreo militar debido a que la lluvia dejó impracticable la pista de tierra del aeropuerto.
+Como si no fuera poco, a la problemática de comunicación se suma que tampoco pudo llegar en la semana el vuelo de avión del transporte aéreo militar debido a que la lluvia dejó impracticable la pista de tierra del aeropuerto.
 La única forma de poder viajar para estas personas es a bordo de la embarcación Aquidabán que llega a la comunidad en forma semanal proveniente de la zona de Concepción.
 En la comunidad funciona el servicio de línea baja de Copaco, pero como toda empresa estatal el servicio es pésimo, ya que cuando cae la señal se tardan varios días para su reposición.
 Fiscalía citará a declarar a Mario Abdo Benítez y a Hugo Velázquez
@@ -8071,8 +8071,8 @@ Sin embargo, el Miércoles y Jueves santos se desarrolló con normalidad en el c
 Iglesia repudia muertes en la cárcel de San Pedro
 La Conferencia Episcopal Paraguaya (CEP) emitió un comunicado en el que repudia y condena los crímenes ejecutados con saña, crueldad y brutalidad en la cárcel de San Pedro.
 Insta al gobierno en declarar situación de emergencia el sistema penitenciario.
-En el comunicado, la CEP expresa el dolor e indignación por la pérdida de vidas humanas registradas ayer durante el  amotinamiento de reos en la cárcel de San Pedro de Ycuamandyyú que dejó como saldo 10  muertos.
-"Los hechos ocurridos ponen en evidencia, una vez más, la situación de precariedad y falta de atención estructural a los centros penitenciarios del país, que se encuentran rebasados en su capacidad de albergar a los reclusos con las condiciones mínimas requeridas para que cumplan con su objetivo de recuperación y reinserción a la sociedad de las personas privadas de su libertad", reza parte  del comunicado.
+En el comunicado, la CEP expresa el dolor e indignación por la pérdida de vidas humanas registradas ayer durante el amotinamiento de reos en la cárcel de San Pedro de Ycuamandyyú que dejó como saldo 10 muertos.
+"Los hechos ocurridos ponen en evidencia, una vez más, la situación de precariedad y falta de atención estructural a los centros penitenciarios del país, que se encuentran rebasados en su capacidad de albergar a los reclusos con las condiciones mínimas requeridas para que cumplan con su objetivo de recuperación y reinserción a la sociedad de las personas privadas de su libertad", reza parte del comunicado.
 Atyrá con “cero” casos de dengue gracias a vecinos
 El Municipio de Atyrá es la única de Cordillera que no registra casos positivos de dengue.
 La meta de la población es que esa estadística se mantenga durante todo el año.
@@ -8409,7 +8409,7 @@ APOYAN A CONCEPCIÓN Los indignados llegaron hasta el barrio Tembetary para escr
 Mediante una nota en la cual enuncian la situación actual que se vive en Concepción tras la presión ciudadana, los concejales colorados Ytalo Centurión, Rodolfo Villalba, Javier Villagra y César Samudio, exigieron la renuncia del intendente Alejandro Urbieta Cáceres, por la paz de ciudad y la protección de la administración municipal.
 También, pusieron "un plazo" a las instituciones para que actúen contra los parlamentarios con procesos judiciales.
 Monseñor Edmundo Valenzuela será miembro de la Comisión de Redacción del Sínodo Panamazónico
-El papa  Francisco nombró al arzobispo de Asunción, monseñor Edmundo Valenzuela, como miembro de la Comisión de Redacción del Sínodo Panamazónico que se desarrolla en el Vaticano.
+El papa Francisco nombró al arzobispo de Asunción, monseñor Edmundo Valenzuela, como miembro de la Comisión de Redacción del Sínodo Panamazónico que se desarrolla en el Vaticano.
 Valenzuela formará parte de este grupo con el salesiano Rossano Sala (Italia), el cardenal Christoph Schönborn (Austria) y el obispo Marcelo Sánchez Sorondo, canciller de la Pontificia Academia de la Ciencia, además de los primeros integrantes que fueron elegidos al inicio de la asamblea sinodal, que son el relator general del Sínodo, el cardenal Claudio Hummes, arzobispo emérito de São Paulo (Brasil) y presidente de la REPAM; el secretario general del Sínodo de los Obispos, el cardenal Lorenzo Baldisseri (Vaticano); el prosecretario general del Sínodo de los Obispos, Mario Grech (Vaticano); y los dos secretarios especiales: el cardenal Michael Czerny (Vaticano) y David Martínez de Aguirre Guinea (Perú), obispo de Puerto Maldonado.
 Audiencia preliminar para Bajac, antes de Navidad
 De acuerdo a la acusación, Bajac solicitó un pedido de una millonaria coima a los representantes de la empresa Cal Agro SA.
@@ -8438,9 +8438,9 @@ La obra incluye construcción de sistema de desagües fluviales y cloacales.
 Además contara con áreas de esparcimiento recreativo turístico.
 Yacyretá: Turbina en modalidad operacional
 La unidad generadora N° 3 de la Central Hidroeléctrica Yacyretá (CHY) ingresó en modalidad operación en prueba, anunció el jefe paraguayo del Departamento Técnico de la CHY Ing. Leopoldo Melo.
-Melo explicó que después de rigurosos ensayos a la nueva turbina han culminado con conformidad  tras su rehabilitación realizado por el consorcio CAPY y acompañado por  técnicos de Yacyretá.
+Melo explicó que después de rigurosos ensayos a la nueva turbina han culminado con conformidad tras su rehabilitación realizado por el consorcio CAPY y acompañado por técnicos de Yacyretá.
 El periodo operacional de prueba que se extenderá por aproximadamente 20 días si es que no se registra falla y posteriormente ya se oficializará su operación comercial.
-Este proceso será verificado por el presidente de la República, Mario Abdo Benítez, quien realizará una visita técnica a la Central Hidroeléctrica acompañado del director paraguayo de Yacyretá, Dr. Nicanor Duarte Frutos, quienes posteriormente verificarán el avance de las obras maquinización del  Brazo Aña Cuá.
+Este proceso será verificado por el presidente de la República, Mario Abdo Benítez, quien realizará una visita técnica a la Central Hidroeléctrica acompañado del director paraguayo de Yacyretá, Dr. Nicanor Duarte Frutos, quienes posteriormente verificarán el avance de las obras maquinización del Brazo Aña Cuá.
 Crearán mesa intersectorial para reactivar economía en Encarnación
 Con el objetivo de encontrar salidas que permitan reactivar la economía a nivel local se reúnen esta mañana, en la sede de la Gobernación de Itapúa, representantes del Poder Ejecutivo y parlamentarios itapuenses con autoridades del gobierno departamental y representantes de los gremios económicos.
 La reunión está marcada para las 09:00, en el Salón Auditorio “Mcal. Francisco S. López” de la Gobernación de Itapúa, con el objetivo de conformar una Mesa Intersectorial de Reactivación Económica de trabajadores afectados por el cierre de frontera entre Encarnación y Posadas.
@@ -8460,7 +8460,7 @@ En medio de la pandemia, el mercado bursátil local ya logró superar el record 
 El apetito por liquidez y por diversificar riesgos durante la cuarentena incidieron en estos resultados, según agentes del sector.
 Según intervinientes, es la mayor red de distribución de cocaína del departamento Central.
 Fue arrestado José Balboa, líder de una de las barras de Luqueño y leal al clan González Daher.
-Afirman que grupo comercializaba cincuenta  kilos de la droga por mes, por US$ 1.500.000.
+Afirman que grupo comercializaba cincuenta kilos de la droga por mes, por US$ 1.500.000.
 Investigan origen de la “mercadería”, para llegar a las verdaderas cabezas de la organización.
 Virgen Peregrina en Palacio de Gobierno: “Paraguay quiere defender a sus niños y la familia”, reclama Edmundo Valenzuela
 El presidente Mario Abdo Benítez recibió a la comitiva de la imagen peregrina en compañía de su esposa Silvana López Moreira. Lourdes Samaniego.
@@ -8532,7 +8532,7 @@ Monseñor Collar Noguera realizó además nuevos nombramientos en la Diócesis.
 Fue nombrado rector del Seminario Menor San José de San Juan Bautista, Misiones, el padre Florentín Melgarejo; como párroco de San Ignacio, Misiones, el padre David Hernández (S.); como párroco de Santa María de Fe, el padre Cristino Quiñonez (S. y párroco de San José Artesano de Pilar y nuevo vicario, el padre Bernardo Ríos González.
 Paraguay será vicepresidente en Asamblea General de la ONU
 Julio César Arriola, representante permanente de Paraguay ante las Naciones Unidas, ocupará una de las 21 vicepresidencias en la Asamblea General de la ONU que se iniciará en setiembre próximo y se extenderá hasta setiembre de 2021.
-La presidencia de dicha asamblea quedó a cargo  de Turquía.
+La presidencia de dicha asamblea quedó a cargo de Turquía.
 Paraguay -a través de Arriola- ejercerá una de las vicepresidencias durante la Asamblea General de la Naciones Unidas (ONU) a desarrollarse desde setiembre.
 Así también, ocupará la vicepresidencia de la Cuarta Comisión de la Asamblea General, en representación del Grupo de Países de América Latina y el Caribe (GRULAC), y se ocupará de temas de política especial y de descolonización.
 Celebramos la elección del Paraguay para una de las vicepresidencias de la Asamblea General de las Naciones Unidas #UNGA75.
@@ -8570,7 +8570,7 @@ Es comprensible que en este contexto la Cámara de la Industria Química Farmac�
 Todo indica que los funcionarios de la ministerial Dirección Nacional de Vigilancia Sanitaria (Dinavisa) incurren en una grave negligencia o hasta en una complicidad, poniendo en serio riesgo la salud pública.
 Indert garantiza seguridad a colonos japoneses
 El intendente de la Municipalidad de Yguazu, Mauro Kawano, junto con directivos de la Cooperativa Yguazu, se entrevistaron hoy con el titular del Instituto Nacional de Desarrollo Rural y de la Tierra (Indert), Abog. Mario Vega.
-Los colonos japoneses manifestaron al titular del Indert  la preocupación que genera la solicitud de mensura judicial planteada por el instituto agrario.
+Los colonos japoneses manifestaron al titular del Indert la preocupación que genera la solicitud de mensura judicial planteada por el instituto agrario.
 El 10 de setiembre último, el Indert solicitó la mensura judicial de las fincas 631 y 77 que forman parte de la colonia japonesa.
 El juez Juan Palacios tiene la solicitud en su juzgado.
 El pedido de mensura judicial fue firmado por el entonces titular del Indert, Horacio Torres.
@@ -8619,7 +8619,7 @@ Barreto tendrá a su cargo la coordinación de todas las gestiones para la circu
 El objetivo es brindar un buen servicio a los usuarios que utilicen el paso internacional habilitado el 23 de agosto pasado por los presidentes Mario Abdo Benítez, y Mauricio Macri.
 Por otro lado, en el área de comunicaciones de Yacyretá se informó de que durante este primer mes de habilitación más de 11.000 personas utilizaron el paso fronterizo.
 La entrega, se llevó adelante en medio de un estricto del protocolo sanitario establecido por el Ministerio de Salud para combatir al Covid-19.
-Seguro de funcionarios judiciales,    una bofetada a la ciudadanía
+Seguro de funcionarios judiciales, una bofetada a la ciudadanía
 El último 31 de marzo, el presidente de la Corte Suprema de Justicia, Alberto Martínez Simón, y los ministros Antonio Fretes y María Carolina Llanes llamaron “ad referendum” a una licitación pública con el fin de que se contrate un “servicio médico sanatorial integral para los funcionarios de la Corte Suprema de Justicia”.
 En realidad, los beneficiarios de la contratación plurianual, cuyo costo estimativo es de 318.240 millones de guaraníes, serían los casi doce mil funcionarios del Poder Judicial y sus familiares.
 Estos son los “salvadores” de Portillo, Rivas y Quintana
@@ -8629,8 +8629,8 @@ En sesión extraordinaria, la Cámara Baja trató esta tarde el pedido de pérdi
 Sin mayor debate y por mayoría los legisladores rechazaron los pedidos de expulsión de los diputados y enviaron al archivo dichas solicitudes.
 Nota relacionada: Diputados rechazó pérdida de investidura de Portillo, Rivas y QuintanaLos cartistas Basilio Núñez, Miguel del Puerto, Tadeo Rojas, Walter Harms, Blanca Vargas, Pedro Alliana, Avelino Dávalos, Erico Galeano, Hugo Ramírez, Vicente Rodríguez, Hernán Rivas, Nestor Ferrer, Nazario Rojas, Raúl Latorre, Edwin Reimer y Roque Sarubbi votaron por la continuidad de los cuestionados diputados en sus bancas.
 “El Congreso de Estados Unidos recibió la notificación de que el presidente retiró oficialmente a Estados Unidos de la OMS en medio de una pandemia”, dijo en Twitter el senador demócrata Bob Menéndez.
-Al romper con esta oficina sanitaria de la ONU en plena pandemia, el presidente estadounidense Donald  Trump la priva de parte esencial de su magro presupuesto y pone en peligro programas de salud en los países más pobres.
-Trump, que ya había reducido la contribución financiera de Estados Unidos a la OMS, a la que acusa  de indulgencia ante China, cumplió el pasado viernes su amenaza de cortar sus  lazos con la agencia sanitaria de la ONU.
+Al romper con esta oficina sanitaria de la ONU en plena pandemia, el presidente estadounidense Donald Trump la priva de parte esencial de su magro presupuesto y pone en peligro programas de salud en los países más pobres.
+Trump, que ya había reducido la contribución financiera de Estados Unidos a la OMS, a la que acusa de indulgencia ante China, cumplió el pasado viernes su amenaza de cortar sus lazos con la agencia sanitaria de la ONU.
 Comienza novenario en honor a Santo Tomás en Paraguarí
 La feligresía católica de Paraguarí acompañó hoy, con estallido de petardo, la caravana de la caballería de jinetes, cuadrillas de toreros y carrozas de los centros católicos, el inicio del novenario en honor al patrono Santo Tomás Apóstol.
 La procesión del patrono Santo Tomás se inició con el acompañamiento de la Patrulla Caminera, agentes policiales, Banda de Músicos de la Artillería local, bomberos voluntarios de esta ciudad, y los devotos de las diferentes capillas que se esmeraron con las carrozas para participar de la actividad.
@@ -8705,7 +8705,7 @@ Leilah Noguer Meek, paraguaya, consejera senior de QS Quacquarelli Symonds - emp
 La feria virtual de postgrados QS Grad School Tour tratará sobre programas de máster general, abierta a todos los interesados.
 El perfil es: personas en último año de carrera universitaria y jóvenes profesionales, de entre 22 y 35 años, residentes en Paraguay.
 Pueden registrarse aquí.
-Para sesiones informativas con citas, QS connect MBA online el  perfil de los candidatos contempla que tenga una edad de entre 25 y 37 años, dos años mínimo de experiencia laboral relevante y que sean residentes en Paraguay.
+Para sesiones informativas con citas, QS connect MBA online el perfil de los candidatos contempla que tenga una edad de entre 25 y 37 años, dos años mínimo de experiencia laboral relevante y que sean residentes en Paraguay.
 Noche de los Museos se estrena con éxito en Ayolas
 La III edición de la Noche de los Museos llegó por primera vez a la ciudad de Ayolas.
 El evento se puso en marcha las 18:00 en el salón de eventos de Relaciones Públicas de la Entidad Binacional Yacyretá (EBY) con presencia de un nutrido número de público.
@@ -8716,8 +8716,8 @@ La Comisión Especial de Supervisión de Compras Covid-19 (CESC) rindió cuentas
 La creación por decreto de esta comisión especial pasando por alto los canales institucionales previstos en la Constitución, ya fue una señal de alerta de lo que podría pasar, y sucedió.
 Se trató de un simple distractor a la ciudadanía para desviar la atención de los entuertos que rodearon al negocio ilícito de venta de medicamentos al Estado.
 Lalo Villalba y Los Orrego, en línea
-“Por siempre romántico” se denomina el concierto en línea que ofrecerá hoy el cantante  Lalo Villalba, a partir de las 20:00, en la página de Facebook “Música y músicos del Paraguay”.
-En el marco del concierto, el artista que por dos décadas integró el Trío de Siempre,  presentará su fanpage y su canal de YouTube, así como las canciones de su disco “El dueño”.
+“Por siempre romántico” se denomina el concierto en línea que ofrecerá hoy el cantante Lalo Villalba, a partir de las 20:00, en la página de Facebook “Música y músicos del Paraguay”.
+En el marco del concierto, el artista que por dos décadas integró el Trío de Siempre, presentará su fanpage y su canal de YouTube, así como las canciones de su disco “El dueño”.
 Con música paraguaya y villancicos, el Conservatorio de Música Ha Che Valle de esta ciudad cerró anoche el año lectivo.
 Fue en la Catedral de San Juan Bautista, donde se realizó el tradicional concierto de fin de año, con egreso de profesores de bandoneón, canto y lenguaje musical.
 La apertura del concierto estuvo a cargo de la Orquesta Ha Che Valle, integrada por alumnos iniciales en diferentes instrumentos.
@@ -8826,7 +8826,7 @@ Es un monto casi equivalente al de la ley de emergencia aprobada por pandemia de
 Prácticamente triplica al que se pagaba hace 10 años, antes de dispararse el endeudamiento.
 Para fin de año la deuda pública llegará a los US$ 12.553 millones y trepará al 35% del PIB.
 El Paraguay pone en vigencia 10 leyes antilavado de dinero
-El Ejecutivo promulgó ayer la última ley del paquete antilavado de dinero, de 10 en total, que son parte de la recomendación del Grupo de Acción Financiera Latinoamericana (Gafilat) que examina  el funcionamiento del sistema de combate al   lavado de activos para no caer en la lista gris.
+El Ejecutivo promulgó ayer la última ley del paquete antilavado de dinero, de 10 en total, que son parte de la recomendación del Grupo de Acción Financiera Latinoamericana (Gafilat) que examina el funcionamiento del sistema de combate al lavado de activos para no caer en la lista gris.
 El presidente Mario Abdo Benítez promulgó ayer la última ley del paquete antilavado de dinero, en acto en el Palacio de López, con presencia de los titulares del Congreso, el senador Blas Llano (PLRA) y de la Corte Suprema de Justicia, doctor Eugenio Jiménez.
 La última normativa (ver infografía) es la Ley 6497: “Que modifica disposiciones de la ley N° 1015/1997 “que previene y reprime los actos ilícitos destinados a la legitimación de dinero o bienes” y su modificatoria ley n° 3783/2009”.
 Exigen al Mopc instalar reductores de velocidad sobre Ruta PY03
@@ -8887,7 +8887,7 @@ La iglesia Santos Cosme y Damián es una de las mejor conservadas de todos los t
 En Itapúa se encuentran, además de la Misión San Cosme, las misiones de Santísima Trinidad y Jesús de Tavarangüe, ambas sobre la ruta nacional PY06.
 Brasil acusa a HC de ser parte de una red criminal
 Juez federal dice que el expresidente paraguayo protegió y ayudó a su “hermano del alma” Darío Messer cuando estaba prófugo de la justicia.
-Fiscalía halló copia de carta de puño y letra de Messer en que pide a HC  US$ 500.000, así como  mensajes de Whatsapp entre ambos.
+Fiscalía halló copia de carta de puño y letra de Messer en que pide a HC US$ 500.000, así como mensajes de Whatsapp entre ambos.
 El titular del JEM, el senador Enrique Bacchetta (ANR, abdista), emplazó a la jueza Cinthia Garcete Urunaga a remitir las compulsas actualizadas del expediente N° 13/2019 caratulado “Sandra María McLeod de Zacarías y otros s/Lesión de confianza” dentro de 48 horas.
 La investigación del Jurado fue abierta a raíz de publicaciones periodísticas que informaban del blanqueo de la pareja Zacarías-McLeod, pese a que se constataron el perjuicio a las arcas de la Municipalidad de Ciudad del Este.
 El lunes pasado, la jueza Garcete sobreseyó definitivamente al matrimonio Zacarías-McLeod y a otros ocho procesados al anular una acusación que señalaba un presunto desvío de G. 2.488 millones de la Comuna esteña.
@@ -8911,7 +8911,7 @@ Para evitar la propagación del covid-19, autoridades de varios municipios dispu
 El jefe comunal dijo que acordaron con los miembros de la Junta Municipal establecer dicha medida para mitigar la propagación del covid-19 que azota al mundo.
 Señaló que la disposición entra a regir desde este sábado 21 de marzo a las 00:00 e indicó que durará hasta que culmine la cuarentena que aprobó el gobierno del Presidente de la República, Mario Abdo Benítez, que ahora se extendió hasta el 12 de abril.
 Instó a la comunidad a que respete el protocolo.
-Un grupo de pobladores de esta localidad autodenominados sin tierras y guardias privados de una finca  agrícola fueron protagonistas de un enfrentamiento en la tarde de hoy, dejando a uno de los labriegos con una herida grave y varios lesionados.
+Un grupo de pobladores de esta localidad autodenominados sin tierras y guardias privados de una finca agrícola fueron protagonistas de un enfrentamiento en la tarde de hoy, dejando a uno de los labriegos con una herida grave y varios lesionados.
 El suceso se registró esta siesta aproximadamente a las 13:00 en la zona conocida como Segundo Encuadre, de la calle Rosarino, ubicada en este municipio, propiedad de la Empresa Agro Investment S.
 Según el informe de la policía, en horas de la mañana se trasladó hasta el inmueble una comitiva fiscal-policial encabezada por del Crio. Ppal. MCP. Félix Daniel Benítez, Jefe del Departamento de Seguridad Ciudadana y el Agente fiscal Lucrecio Cabrera de la Unidad Nº 2 de la fiscalía de Curuguaty, con el propósito de verificar la propiedad en cuestión, a raíz de una denuncia de invasión presentada por parte de los encargados del establecimiento en contra de un grupo de personas desconocidas.
 Al respecto, logramos contactar con el señor Ramón Vera, herido durante este episodio, quien dijo que los campesinos en ningún momento realizaron disparos de armas hacia los peones.
@@ -8960,7 +8960,7 @@ La ministra Cecilia Pérez, el asesor en Geopolítica y Asuntos Internacionales 
 Rubén Melgarejo Lanzoni, y el coordinador de la unidad de seguridad, información e inteligencia penitenciaria, comisario Mario Quiñónez visitaron la Penitenciaría Federal en Brasilia, prisión federal de Brasil donde se encuentran recluidos líderes de organizaciones criminales.
 Agregó que van a ejecutar la póliza prevista y aseguró que ya instruyó un sumario para deslindar responsabilidades dentro de la institución.
 FBI y Departamento de Justicia de EE. UU. se instalan en nuestro país en medio de fuertes casos
-Representantes del Buró Federal de Investigaciones (FBI por su sigla en inglés) y del Departamento de Justicia de los Estados Unidos se reunieron con autoridades de la Secretaría Nacional de Inteligencia y la Fiscalía para  instalar una mesa de trabajo a fin de “tratar asuntos sensibles de interés bilateral”, decisión que no hace más que ratificar que el país norteamericano está interesado en hacer seguimientos de casos vinculados al narcotráfico, corrupción, lavado de dinero y otros delitos.
+Representantes del Buró Federal de Investigaciones (FBI por su sigla en inglés) y del Departamento de Justicia de los Estados Unidos se reunieron con autoridades de la Secretaría Nacional de Inteligencia y la Fiscalía para instalar una mesa de trabajo a fin de “tratar asuntos sensibles de interés bilateral”, decisión que no hace más que ratificar que el país norteamericano está interesado en hacer seguimientos de casos vinculados al narcotráfico, corrupción, lavado de dinero y otros delitos.
 La reunión se realizó ayer en la sede de la Secretaría Nacional de Inteligencia con la participación del ministro de esa institución, Esteban Aquino, la fiscala general del Estado, Sandra Quiñónez, y el fiscal adjunto de Asuntos Internacionales, Manuel Doldán.
 No trascendieron mayores datos de la reunión, pero la simple confirmación de la instalación de una mesa de trabajo ya implica una relevancia importante, sobre todo teniendo en cuenta que tanto el FBI como el Departamento de Justicia fueron grandes partícipes de la investigación por la cual se logró la aprehensión en Estados Unidos de la exdiputada Cynthia Tarragó por lavado de dinero y narcotráfico.
 Pescados frescos en Remanso
@@ -9014,7 +9014,7 @@ Agregó que está comprometido en completar los 44 kilómetros hasta empalmar co
 Añadió que la gente quiere soluciones inmediatas, pero que la burocracia lastimosamente lleva su tiempo.
 Asistieron además del presidente Abdo Benítez, el titular del MOPC, Arnoldo Wiens; el director de Yacyretá, Nicanor Duarte Frutos; el gobernador de Misiones, Carlos Arrechea (ANR) y el intendente de esta ciudad, Juan Carlos Meza (PLRA), entre otras autoridades.
 Una competencia sin precedentes entre las facultades de la Universidad Nacional de Asunción (UNA) es tendencia en Twitter en la noche de este miércoles.
-En una votación lanzada por un usuario de la red social la Facultad de Arquitectura, Diseño y Arte (FADA) está cabeza a cabeza con la  Facultad Politécnica, en una disputa por ser la favorita de los internautas.
+En una votación lanzada por un usuario de la red social la Facultad de Arquitectura, Diseño y Arte (FADA) está cabeza a cabeza con la Facultad Politécnica, en una disputa por ser la favorita de los internautas.
 Hasta las 22:00 de este miércoles está abierta la votación en Twitter para determinar cuál es la facultad de la UNA con más fans.
 Esta competencia nació en unas publicaciones de los usuarios de la red social del pajarito y cobró notoriedad cuando Monserrat Heurich, presentó la votación “El mundial de la UNA 2.0”, que se volvió tendencia en nuestro país.
 HC pide que se trate veto a ley de Marina Cué y adelanta que aceptará decisión del Ejecutivo
@@ -9076,7 +9076,7 @@ También estuvieron presentes el titular de la Secretaría de Prevención de Lav
 En la ocasión, la proyectista de la ley de control del financiamiento político lamentó que finalmente no se llegará a poner en funcionamiento la normativa para las próximas municipales, debido a que no tendrán el respaldo suficiente para la sesión extraordinaria en la que planeaban tratar el proyecto, el próximo 4 de febrero.
 Vallejo lamentó que los colorados no den su apoyo a la propuesta legislativa y que permanentemente hablen de “inaplicabilidad”, en lugar de mencionar que trabajarán por el proyecto.
 El árbol “más grande” de la Amazonía mide 88 metros y está a salvo de incendios
-El árbol “más grande” de la selva  amazónica mide 88 metros, se encuentra en la espesura del norte de Brasil y  está a salvo de los incendios que consumen esta zona vital para el planeta,  reveló una investigación realizada por científicos brasileños y británicos.
+El árbol “más grande” de la selva amazónica mide 88 metros, se encuentra en la espesura del norte de Brasil y está a salvo de los incendios que consumen esta zona vital para el planeta, reveló una investigación realizada por científicos brasileños y británicos.
 Ubicado junto a un “santuario” de árboles gigantes en la frontera entre los estados de Pará y Amapá, el ejemplar de la especie Dinizia excelsa, conocido popularmente como Angelim rojo, tiene 5,5 metros de circunferencia, detalla la investigación difundida esta semana por la Secretaría de Estado de Ciencia y Tecnología de Amapá (Setec).
 Comisión de control de compras pide a Salud frenar licitaciones
 “Solicitamos al ministro de Salud, Julio Mazzoleni, que suspenda los procesos de licitación hasta el martes”, indicó el titular de la Secretaría Nacional Antidrogas (Senad) y responsable de la Comisión Especial de Supervisión y Control de Compras Covid-19, Arnaldo Guizzio.
@@ -9090,7 +9090,7 @@ La Expo de Mariano Roque Alonso tiene un condimento especial, es una vitrina int
 Confirman condena al exsenador Víctor Bogado y su “niñera de oro”
 Aún se puede apelar la anulación del acuerdo secreto con Texos, según juez
 La resolución del juez Hugo Garcete, que dejó sin efecto el acuerdo secreto de la Procuraduría General de la República (PGR) y Petróleos del Paraguay SA (Petropar) con la firma Texos Oil SRL, a la que pretendían pagar US$ 7 millones para extinguir una causa judicial, aún puede ser apelada, según confirmó el magistrado.
-El nuevo abogado de la empresa argentina incluso quería “efectivizar”  el convenio extrajudicial.
+El nuevo abogado de la empresa argentina incluso quería “efectivizar” el convenio extrajudicial.
 “Si queda firme la resolución sigue el juicio para dictar sentencia, porque esto puede ser recurrido, puede ser apelado, si es que una de las partes no está de acuerdo.
 Si queda firme, se dicta sentencia y si se va a la Cámara (de Apelaciones) ahí se debe definir si queda firme o no esta resolución.
 Si se apela, se va al Tribunal de Apelación, donde se revoca o se confirma la resolución”, expresó Garcete a ABC.
@@ -9123,7 +9123,7 @@ Grupo de mujeres organizadas de Ayolas llevan adelante producción de productos 
 Antonia Martínez, integrante del “Comité de Producción Teko Joaju”, indicó que desde hace unos años vienen trabajando en la elaboración de cincos productos de limpieza como: jabón líquido, suavizante para ropa, lavandina, desodorante de ambiente y detergente, con el objetivo de contar con un rubro alternativo de ingreso económico para el sostenimiento del hogar.
 El comité “Comité de Producción Teko Joaju”, está conformada por ocho mujeres, que conformaron sus propios horarios para trabajar en la elaboración de los productos y para salir a recorrer y poder distribuir la mercadería.
 Anuncian construcción de cincuenta viviendas populares en Horqueta
-El intendente Jorge Urbieta (ANR) informó que en este distrito se construirán  50 viviendas populares en el marco del proyecto “Oñondivepa” del Ministerio de Urbanismo  Vivienda y  Hábitat Paraguay y del Instituto Nacional de Desarrollo Rural y de la Tierra (Indert).
+El intendente Jorge Urbieta (ANR) informó que en este distrito se construirán 50 viviendas populares en el marco del proyecto “Oñondivepa” del Ministerio de Urbanismo Vivienda y Hábitat Paraguay y del Instituto Nacional de Desarrollo Rural y de la Tierra (Indert).
 Urbieta informó que en un acto realizado esta mañana en el Palacio de los López con la presencia del Presidente Mario Abdo Benítez, él y otros intendentes recibieron documentos del proyecto de construcción de las viviendas para 1.
 Dijo que las 50 viviendas a ser construidas se sumarán a 130 viviendas que se edificaron en esta ciudad y en compañías del distrito de Horqueta durante el gobierno del expresidente Horacio Cartes y de periodos anteriores.
 Destacó la ayuda de la senadora nacional Blanca Ovelar (ANR) para que el proyecto se desarrolle en esta ciudad en la que se invertirán G. 4.000 millones que beneficiarán a obreros y familias de escasos recursos económicos de este distrito.
@@ -9160,8 +9160,8 @@ El 6 de enero el Senado tratará aporte al IPS de las empresas gastronómicas, d
 La Comisión Permanente presidida por el diputado Raúl Latorre aprobó la sesión extraordinaria de Diputados mañana 30 de diciembre a las 10:00, y el 6 de enero hará lo propio la Cámara de Senadores.
 Los senadores Sergio Godoy y Georgia Arrúa propusieron reunión extraordinaria, con el fin de tratar el proyecto de ley “Que establece un régimen transitorio de aportación al Instituto de Previsión Social, dirigida a empresas dedicadas a los sectores gastronómicos, eventos, hotelero, agencia de turismo y entretenimientos, en todo el territorio de la República, a consecuencia de la declaración del Estado de Emergencia sanitaria, establecido por Ley N° 6524/2020 a causa del covid-19”.
 ANR triunfa en San Carlos del Apa
-Lilian Souza Quintana de la ANR es la nueva  intendenta de San Carlos del Apa, departamento de Concepción.
-La colorada independiente de 35 años se encargará de culminar el periodo administrativo dejado por Higinio Fernández (ANR, Añetete),  quien fue destituido por la Cámara de Diputados.
+Lilian Souza Quintana de la ANR es la nueva intendenta de San Carlos del Apa, departamento de Concepción.
+La colorada independiente de 35 años se encargará de culminar el periodo administrativo dejado por Higinio Fernández (ANR, Añetete), quien fue destituido por la Cámara de Diputados.
 Estaban habilitados 888 electores, de los cuales votaron 655 y Lilian Souza Quintana obtuvo 349 votos.
 El colegio Nacional San Carlos cerró sus puertas puntualmente a las 18:00 y el conteo se desarrolló sin ningún inconveniente, informó el corresponsal Aldo Rojas.
 Lilian Souza Quintana se presentó por el Partido Colorado; Pablo Enrique Lezcano, por el PLRA; y Luis Aníbal Schupp, del Partido Demócrata Cristiano (PDC).
@@ -9196,7 +9196,7 @@ Allí será entregado a las autoridades federativas.
 Boscatto es requerido por la justicia del vecino país por formar parte de una red de contrabando de cigarrillos y también por tener vinculación con el esquema de lavado de dinero Lava Jato por el que está procesado Dario Messer, el “hermano del alma” del expresidente de la República, Horacio Cartes.
 Además, en el marco del Operativo Patrón, la Fiscalía brasileña mencionó que el exministro del Interior, Juan Ernesto Villamayor, recibió 600.000 dólares para frenar la extradición que finalmente hoy fue materializada por las autoridades locales.
 UNA inaugura espacio de oportunidades profesionales y personales
-La Universidad Nacional de Asunción (UNA)  inauguró su espacio Coworking denominado Center of Innovation (COI) en el edificio del Centro de Estudios Tecnológicos (CETUNA).
+La Universidad Nacional de Asunción (UNA) inauguró su espacio Coworking denominado Center of Innovation (COI) en el edificio del Centro de Estudios Tecnológicos (CETUNA).
 Se trata de un espacio que propicia la reunión de profesionales independientes, emprendedores y empresarios para trabajar, donde gestores del sitio les conecta y crean oportunidades profesionales y personales entre sí y para sus miembros de forma colaborativa.
 En la ocasión la rectora de la UNA, Prof. Zully Vera de Molinas, resaltó la función de la Universidad como un espacio de oportunidades para conectar a profesionales, docentes, investigadores y estudiantes emprendedores.
 Destacó que el emprendimiento tiene la cooperación del gobierno de Corea del Sur que entregó en donación los mobiliarios y el equipamiento completo, a través del Programa World Friends de Voluntariado en el Extranjero por parte del 6to Cuerpo Voluntarios Juveniles de Corea (KUCSS).
@@ -9337,7 +9337,7 @@ También negó que la cooperación del Buró Federal de Investigaciones (FBI, po
 Es que el senador del Frente Guasú, Sixto Pereira, denunció que era una intromisión que atentaba contra la soberanía del Estado paraguayo, tras darse a conocer una reunión entre funcionarios de estas instituciones norteamericanas y autoridades de la Secretaría Nacional de Inteligencia y la Fiscalía.
 Dinacopa lanzó dos nuevos sellos alusivos a la Navidad
 La Dirección Nacional de Correos del Paraguay (Dinacopa) presentó dos sellos postales denominados “Navidad 2019”.
-Los fueron ilustrados por los artistas nacionales  Koki Ruiz y Macarena Ruiz.
+Los fueron ilustrados por los artistas nacionales Koki Ruiz y Macarena Ruiz.
 El anuncio hecho por Hacienda detalla que para los 39 becarios de la 9º Convocatoria Autogestionada de Becas serán invertidos US$ 2.710.000 (US$ 50.000 para maestrías y US$ 90.000 para doctorados) y para las 34 plazas de Intercambio Internacional a Nivel de Grado por la vía Autogestionada y por Vía Asistida (con el Comité Paraguay Kansas), unos US$ 340.000.
 Además, añade, US$ 120.000 irán a financiar las cuatro becas de Posdoctorados y US$ 63.000 para 90 becarios de Formación en Idiomas Extranjeros en el país.
 Gobernador de Central calificó de “falacia” la denuncia en su contra por supuesta malversación de fondos
@@ -9389,8 +9389,8 @@ Francisco añadió que “la violencia es autodestructiva y con ella no se gana 
 Miles de paraguayos protestan exigiendo la renuncia del presidente, Mario Abdo Benítez, ante lo que consideran la mala gestión del Gobierno en la pandemia.
 Comunicadores indígenas destacan valor del árbol ante incendios forestales
 Cursos para maestros
-Este jueves se inician los Cursos Libres de Verano 2021,  organizados  por expertos en educación.
-Las actividades, gratuitas, se extenderán hasta la primera semana de febrero y  se realizarán  vía zoom.
+Este jueves se inician los Cursos Libres de Verano 2021, organizados por expertos en educación.
+Las actividades, gratuitas, se extenderán hasta la primera semana de febrero y se realizarán vía zoom.
 El jueves será el Diálogo sobre Educación e Interculturalidad, con Marilin Rehnfeldt.
 El sábado, el viceministro de Educación, Robert Cano, hablará sobre el “Plan Operativo 2021. Hacia una nueva presencialidad”.
 El 21 de enero, Miguel Ángel López Perito hablará sobre “Reforma del Estado y Educación”.
@@ -9486,7 +9486,7 @@ Incluso gremios de trabajadores en la venta de la quiniela se mostraron enfrenta
 Lafuente enumera debilidades del plan del MEC
 La exministra de Educación Marta Lafuente enumeró una serie de flaquezas del plan educativo del MEC en tiempos de COVID-19 según su versión.
 Esto se debe a una solicitud del propio ministro de Educación, Eduardo Petta.
-Lafuente señala, entre otras cosas, falta de  políticas de emergencia para atender la brecha digital y afirma que “lanza una iniciativa como si solo dependiera de la disponibilidad de un celular o dispositivo.
+Lafuente señala, entre otras cosas, falta de políticas de emergencia para atender la brecha digital y afirma que “lanza una iniciativa como si solo dependiera de la disponibilidad de un celular o dispositivo.
 La educación es bastante más que eso”, asevera.
 La semana pasada empezaron nuevamente las clases en las escuelas oficiales, esta vez bajo la modalidad online en el marco de la pandemia de COVID-19.
 Esto se dio en medio del descontento de un gran sector de la comunidad educativa que desde un principio solicitó un plan de contingencia participativo, pero no hubo acuerdo con las autoridades del Ministerio de Educación y Ciencias (MEC).
@@ -9496,8 +9496,8 @@ Es bueno que haya un control cruzado en esta cuestión esencial para un combate 
 Urgen asistencia a comunidades indígenas ante avance de covid-19
 “La atención es demasiado imperiosa, pero el Gobierno, a más de una semana de los primeros reclamos, no actúa aún”, señala Sofía Oviedo, miembro de la organización Ary Ojasojavo, de estudios ancestrales y populares.
 Hoy la organización remitió una nota a la presidenta de la Comisión de Pueblos Indígenas del Senado, Hermelinda Alvarenga, resaltando que “hay casos de mujeres y hombres Pãi Tavyterã que fueron a trabajar a establecimientos ganaderos en Brasil bajo la condición de migración laboral temporal antes del inicio de las medidas de cuarentena.
-En salud se usó  el 2% de la ley de emergencia
-De los US$ 1.600 millones dados al Gobierno por la crisis del covid,  en salud se usaron 31.
+En salud se usó el 2% de la ley de emergencia
+De los US$ 1.600 millones dados al Gobierno por la crisis del covid, en salud se usaron 31.
 El evento, que estaba previsto realizarse en la plaza “José de Antequera y Castro”, finalmente se realizó en el salón multiuso “Hno. Félix Aldunate” del Centro Parroquial de Educación de los Hermanos Maristas, debido a que las condiciones climáticas de las primeras horas de hoy indicaban que podrían registrarse lluvias.
 El espectáculo, del que participaron centenares de personas con entradas gratuitas e invitados especiales, se inició a las 10:00 y culminó a las 11:30, aproximadamente.
 Por primera vez, se desarrolló en Horqueta la actuación de una orquesta sinfónica que estaba compuesta por 40 líderes de Sonidos de la Tierra de distritos de 13 departamentos del país.
@@ -9522,7 +9522,7 @@ Los interventores explicaron en el documento de intervención que la minería de
 Indicaron que son cientos o miles de procesadores ultra potentes que trabajan prácticamente 24 horas al día para realizar transacciones de la moneda virtual o criptomoneda descentralizada.
 Estos procesadores deben realizar millones de cálculos y procesos algorítmicos que tras una determinada cantidad de procesos y resultados obtenidos, se genera una criptomoneda.
 Peregrinos llegan a Itapé
-La capital espiritual del Guairá se prepara para recibir a centenares de peregrinos en el santuario natural de Tupasy Paso (Virgen del Paso), asentado a orillas del río Tebicuarymí en Itapé.
+La capital espiritual del Guairá se prepara para recibir a centenares de peregrinos en el santuario natural de Tupasy Paso (Virgen del Paso), asentado a orillas del río Tebicuarymí en Itapé.
 Para las 19:00 se prevé la santa misa y clausura del novenario, que será presidida por Mons. Edmundo Valenzuela.
 La apacible localidad de Itapé se alista para recibir a cientos de peregrinos en la víspera solemne y clausura del novenario en honor a la Virgen del Paso con el tema: “Mucho más dichosos son los que escuchan la palabra de Dios y la cumplen”.
 Las actividades se inician a las 17:00 con la peregrinación acompañada de la imagen de la Virgen desde el microcentro de la ciudad hasta el santuario natural, ubicado a orilla del río Tebicuarymí, seguidos de actos penitenciales, confesiones y letanías a la protectora espiritual.
@@ -9540,7 +9540,7 @@ Este manejo delictual quedó en evidencia con la difusión de los audios que afe
 En lugar de cumplir con su responsabilidad de controlar el cumplimiento de la ley por parte de fiscales y jueces, este organismo es un conglomerado de facciones que tienen representantes serviles a sus deseos.
 Inauguran local del Centro Tecnológico de Caacupé
 El local del Centro Tecnológico Municipal Serranía (CTMS) se inaugura hoy a las 09:00 en Caacupé.
-En la renovada   infraestructura se realizarán actividades para la inclusión digital y desarrollo comunitario.
+En la renovada infraestructura se realizarán actividades para la inclusión digital y desarrollo comunitario.
 La capital del tercer departamento es una de las primeras ciudades digitales de nuestro país.
 El remozado local está ubicado al costado del mercado municipal, sobre la variante de la Ruta PY02 “Mariscal Estigarribia” casi calle General Roa del barrio San Blas de esta capital departamental.
 La municipalidad, administrada por Diego Riveros (PLRA), invirtió G. 150 millones en la remodelación total de la infraestructura, acorde para sede de un Centro Tecnológico Municipal Serranía (CTMS) por la Fundación Paraguay Educa en el marco del programa “Una computadora por niño”.
@@ -9552,7 +9552,7 @@ Se propuso detectar varios aspectos.
 Y bien, los resultados de la bienintencionada evaluación, conocidos en agosto, fueron desastrosos, pero nada sorprendentes para quien tenga alguna idea de cómo funciona el aparato estatal.
 En suma, el 70% de las más de 300 entidades públicas evaluadas se aplazó.
 Lanzan Bachillerato Técnico en Salud en el Chaco
-El Colegio Técnico Nacional local  lanzó el Bachillerato Técnico en Salud (BTS), cuyas clases comenzarán el 3 de marzo, tras exámenes de ingreso.
+El Colegio Técnico Nacional local lanzó el Bachillerato Técnico en Salud (BTS), cuyas clases comenzarán el 3 de marzo, tras exámenes de ingreso.
 Los egresados serán auxiliares de enfermería y podrán trabajar en varias instituciones.
 Esta tarde se lanzó el BTS en el Colegio Técnico Nacional Filadelfia, institución dependiente del Ministerio de Educación y Ciencias (MEC) y apoyado por la municipalidad local.
 La directora del colegio Olga Candia habló de un sueño largamente acariciado, tras un diagnóstico llevado a cabo por la municipalidad en las redes sociales hace dos años atrás, donde la mayoría de los participantes optó por un BTS.
@@ -9642,7 +9642,7 @@ El ministro de Justicia Julio Javier Ríos presentó su renuncia al presidente M
 El anuncio lo realizó el propio Abdo Benítez a través de sus redes sociales, donde también se “solidarizó” con los familiares del Crio. Félix Ferrari, asesinado por los criminales que liberaron a “Samura”.
 Fiscalía acusa a los Zacarías por desvío de dinero de municipalidad y pide prisión para el senador
 La Fiscalía Anticorrupción presentó este mediodía el requerimiento conclusivo en la causa contra el senador Javier Zacarías Irún (ANR, cartista) y su esposa Sandra McLeod de Zacarías, exintendenta de Ciudad del Este, por supuesto desvío de G. 2.174 millones de las arcas municipales.
-La fiscala  Josefina Aghemo confirmó que solicitó prisión preventiva para el legislador colorado.
+La fiscala Josefina Aghemo confirmó que solicitó prisión preventiva para el legislador colorado.
 La Fiscalía Anticorrupción entregó un requerimiento, de unas 200 páginas, además de ocho tomos de pruebas colectadas durante la investigación que se extendió durante un año, según datos.
 Las documentaciones fueron presentadas en el juzgado penal de garantías de turno de Ciudad del Este, a cargo de la jueza Jorgelina Melgarejo.
 En estos momentos los funcionarios están verificando los documentos entregados por la Fiscalía.
@@ -9657,7 +9657,7 @@ Reglamentan Ley de pasaje gratis para personas con discapacidad
 El presidente Mario Abdo Benítez firmó el Decreto N° 4.821 que reglamente la Ley N° 6556 que modifica la norma N° 3365/2007 que exoneraba del pago del pasaje solo a las personas que tenían discapacidad visual.
 Agrega que el Senadis emitirá el certificado de discapacidad en un plazo no superior a 30 días a partir de la recepción de la solicitud realizada por escrito por el beneficiario.
 Para ser considerado beneficiario de la Ley, el pasajero deberá tener como mínimo una discapacidad del treinta y tres por ciento (33 %), en concordancia con las disposiciones que determinan el derecho a la incorporación laboral.
-Dinac vs. “locatarios” del  aeropuerto
+Dinac vs. “locatarios” del aeropuerto
 Ayer, Dinac quiso cortar la electricidad a tres empaquetadoras de maletas del Silvio Pettirossi, aunque luego decidió esperar a contar con orden de desalojo.
 El ente sostiene que casi todos los locatarios del aeropuerto tienen contratos vencidos y pagan cifras ínfimas (algunos, US$ 100 por mes), por lo que les notificó que deben retirarse.
 Anuncia licitaciones para nuevas concesiones.
@@ -9680,8 +9680,8 @@ Este lunes, Daniel Sánchez, de la Asociación de Cuidadores de Vehículos, anun
 Sánchez, en comunicación con ABC Cardinal, dijo que la medida de fuerza comenzará a las 07:30, y aseguró que no se cerrará completamente la avenida Mariscal López, sino que el cierre será parcial.
 El portavoz de la asociación de cuidacoches dijo que lo que exigen es un diálogo directo con los concejales municipales y con el intendente Rodríguez, ya que consideran que no se les explicó nada, sino que repentinamente les notificaron que ya no podrían estar en las calles.
 Objeciones contra proyecto de la UC obliga a frenar obra
-El nuevo edificio de la Universidad Católica Nuestra Señora de la Asunción (UC), que será construido dentro del predio del Colegio de la Providencia, ubicado en la zona reconocida como Centro Histórico, generó este fin de semana una avalancha de críticas en  redes sociales, porque alterará la vista de la histórica Catedral Metropolitana de Asunción.
-El avance  de las obras se suspendió porque falta la aprobación de  la Secretaría Nacional de Cultura (SNC).
+El nuevo edificio de la Universidad Católica Nuestra Señora de la Asunción (UC), que será construido dentro del predio del Colegio de la Providencia, ubicado en la zona reconocida como Centro Histórico, generó este fin de semana una avalancha de críticas en redes sociales, porque alterará la vista de la histórica Catedral Metropolitana de Asunción.
+El avance de las obras se suspendió porque falta la aprobación de la Secretaría Nacional de Cultura (SNC).
 El proyecto de edificación, conservación y ampliación de la Facultad de Filosofía y Ciencias Humanas en el predio del Colegio de la Providencia –declarado Bien Cultural por la Secretaría Nacional de Cultura– no cuenta con aprobación de la Secretaría Nacional de Cultura (SNC), que “tomará los recaudos necesarios para salvaguardar el valioso patrimonio de la ciudad”, según un comunicado emitido por la institución.
 Natalia Ántola, directora general de Patrimonio Cultural de la SNC, dijo a ABC que la UC entregó “el proyecto y documentación que se entregaron a la Municipalidad con sus aprobaciones.
 Falta la parte que habla de la vinculación con el patrimonio.
@@ -9728,14 +9728,14 @@ Rasmussen también adelantó a ABC que el articulado del proyecto de ley de pres
 Este año el presupuesto 2020 contempla el pago del aumento desde julio, pero por la pandemia por coronavirus se suspendió su aplicación mediante ley de emergencia, debido a la falta de recursos para cumplir con este compromiso.
 Día del Corazón y la Primavera en el Paseo Parque de Villa Elisa
 El hospital distrital local festeja mañana el Día internacional del corazón y la llegada de la primavera.
-El evento,  que arranca a las 08:00, se desarrollará en el Paseo Parque, ubicado sobre Von Poleski.
+El evento, que arranca a las 08:00, se desarrollará en el Paseo Parque, ubicado sobre Von Poleski.
 Varias actividades serán desarrolladas en el marco de los festejos, como una correcaminata, zumba, artes marciales, ciclismo y varias otras actividades físicas.
 Para los niños también habrá diversos atractivos, como globos locos, caritas pintadas y dibujos.
 Fiscalía ordena captura de presidente del Indert
 Fiscales afirman que tienen grabaciones de sobornos que involucran a Mario Vega y otros.
 Ayer hubo allanamientos y arrestos, Vega no se presentó, pero dice que lo hará y que es inocente.
 Son varios hechos punibles en dos causas, entre ellos cohecho agravado y asociación criminal.
-Dinero a cambio de “solucionar” expediente y por realizar  pago no autorizado a  contratista.
+Dinero a cambio de “solucionar” expediente y por realizar pago no autorizado a contratista.
 Fiscala que liberó a Salum solicita informes para deslindar a Quiñónez
 La fiscala Teresa Sosa se constituyó esta noche en las oficinas del Ministerio de Defensa, donde se reúne el Consejo de Defensa Nacional, en la Comisaría 9na. y en un edificio residencial en el marco de la investigación por el caso de Karim Salum, el empresario que fue favorecido tras arribar de Estados Unidos con la cuarentena en su casa.
 Sosa es la misma que liberó al hombre e igualmente investiga las supuestas irregularidades en el caso.
@@ -9787,12 +9787,12 @@ Los restos están en la zona de la localidad de Primero de Marzo en las orillas 
 El hecho fue comunicado a la Secretaría Nacional de Cultura para que envíe técnicos especializados y luego proceder al rescate.
 La excavación también se realizó con apoyo del gobernador Hugo Fleitas.
 Según los datos históricos, después de la cruenta Batalla de Piribebuy, del 12 de agosto de 1869, el mariscal Francisco Solano López se retiró de su campamento de Ascurra (Caacupé) hacia Caraguatay con el Primer Cuerpo de su Ejército, al mando del general Francisco Isidoro Resquín.
-Paraguay no debe ceder un ápice  sus derechos en Itaipú
+Paraguay no debe ceder un ápice sus derechos en Itaipú
 La decisión del Gobierno brasileño de asociarse con Paraguay para construir la represa hidroeléctrica binacional de Itaipú fue por su necesidad de contar con más energía eléctrica para potenciar el desarrollo económico del país, en particular del complejo industrial del estado de São Paulo, responsable de más de un tercio del PIB del vecino país.
-No fue un acto de “filantropía” a favor de Paraguay, como lo sostuvo brabuconamente  un exministro de relaciones exteriores brasileño, sino un refuerzo estratégico del 20 por ciento de la capacidad de generación eléctrica del Brasil en ese tiempo.
+No fue un acto de “filantropía” a favor de Paraguay, como lo sostuvo brabuconamente un exministro de relaciones exteriores brasileño, sino un refuerzo estratégico del 20 por ciento de la capacidad de generación eléctrica del Brasil en ese tiempo.
 Lenta ejecución de créditos para mipymes
 A 5 meses de instalarse la cuarentena sanitaria por el Covid 19, la ejecución de fondos para auxiliar a las micro y pequeñas empresas aún sigue baja.
-Las cooperativas y casas de créditos utilizaron apenas el 32% de los recursos disponibilizados por  AFD, mientras que el Fogapy  ejecutó el 50% de su capacidad.
+Las cooperativas y casas de créditos utilizaron apenas el 32% de los recursos disponibilizados por AFD, mientras que el Fogapy ejecutó el 50% de su capacidad.
 La Ejecución del Fondo de Garantías del Paraguay (Fogapy) llegó a mediados del mes al 50% de ejecución por un total de G. 1,27 billones (US$ 184 millones), esto en cinco meses desde la aprobación de la ley de Emergencia para asistir a los afectados por la cuarentena sanitaria.
 Se otorgaron unos 12.000 derechos de garantías, 50% de ellos para el sector de micro emprendedores.
 Cabe señalar que tras la modificación de la ley que crea el Fogapy, se amplió el alcance de beneficiarios a las empresas de mayor porte que también requieren de financiación en las condiciones de flexibilidad otorgadas por el Fogapy.
@@ -9890,7 +9890,7 @@ El jefe de la agrupación escultista, Lic. Marcos López Filártiga, dijo que pa
 Señaló que de acuerdo al programa de la excursión también visitarán este viernes el Panteón Nacional de los Héroes, la Casa de la Independencia, además participarán de una misa que realizará en el templo de la parroquia Nuestra Señora de Nazaret a las 17:30 y luego retornarán al local de la comandancia donde cenarán, charlarán sobre varios temas y vivirán momentos artísticos al que denominan peña libre.
 Por otra parte el jefe scout indicó que siempre en el marco del programa mañana sábado desde la comandancia saldrán para visitar el Hotel Guaraní, el estadio Defensores del Chaco, el primer canal de televisión del Paraguay que es el SNT de Canal 9 y posteriormente conocerán la Nueva Olla, estadio del club Cerro Porteño y el Para Uno del club Olimpia, la Costanera y el Jardín Botánico.
 López manifestó que el domingo próximo en el trayecto de retorno a Horqueta tienen previsto pasar por la ciudad de Caacupé, visitar la basílica de la capital espiritual de la república para participar de la misa de las 07:00 horas y culminado el oficio religioso recorrerán la zona, donde buscarán un arroyo para refrescarse en sus aguas y a las 11:00 retornarán a Horqueta.
-Otra licitación que huele    muy mal en el IPS
+Otra licitación que huele muy mal en el IPS
 El país enfrenta la pandemia con un paupérrimo equipamiento sanitario, pero el IPS se dispone a gastar 39.886 millones de guaraníes en la compra de un software para su hospital regional del Alto Paraná y los centros asistenciales que tiene en ese departamento.
 Y, cuándo no, una licitación pública de la entidad previsional vuelve a cubrirse con el manto de la sospecha.
 Así, la Cámara Paraguaya de la Industria del Software (Cisoft) denunció que la suma mencionada supera “de manera exagerada” el costo de adquisiciones similares y que los requisitos establecidos en el pliego de bases y condiciones –varias veces reajustados– “son consistentes con el direccionamiento de una licitación a una empresa en particular y no a necesidades propias del contratante”.
@@ -9908,7 +9908,7 @@ En conversación con ABC Cardinal este jueves, el titular del Instituto Paraguay
 Señaló que para el desarrollo en las comunidades, el Indi cuenta con un presupuesto que no supera los G. 4.500 millones, pero que según sus estimaciones la entidad necesita unos G. 20.000 millones.
 Entre otras carencias, Olmedo lamentó que el Indi no cuente con ningún antropólogo en su nómina de funcionarios, teniendo en cuenta la importancia de contar con un experto en la cultura de los pueblos originarios, y afirmó que hizo un llamado para la contratación de uno, pero que las actuales limitaciones en contrataciones de funcionarios públicos no han permitido que se contrate a uno hasta ahora.
 Fiscala argentina pidió imputación para médica que ingresó con presunto Covid-19
-Estaba en  lista de intervenciones, pero fue uno de los salvados por pacto colorado en Diputados.
+Estaba en lista de intervenciones, pero fue uno de los salvados por pacto colorado en Diputados.
 Tras varios días de protestas, se regulariza provisión de agua en Carapeguá
 Después de una semana de manifestaciones por falta de agua, que venían reclamando los pobladores de San Vicente, María Auxiliadora y Señor de las Palmas, que debieron recurrir incluso al cierre de rutas, finalmente lograron que sus reclamos sean atendidos por la ANDE Regional Paraguarí, que debía instalar transformadores para solucionar la baja tensión.
 El jefe de la ANDE Regional Paraguarí, Juan Carlos Ojeda, movilizó a su cuadrilla de técnicos y de empresas terciarizadas que ayer en todo el día estuvieron trabajando en la solución de la baja tensión en un sector de esta ciudad.
@@ -9947,7 +9947,7 @@ Sobran comisiones, faltan imputaciones
 Es frecuente en nuestro medio que un Gobierno cree una comisión ad hoc cuando no quiere o no puede resolver cierto problema, con lo que gana algún tiempo y da la impresión de estar muy preocupado por el bien común.
 El presidente Mario Abdo Benítez apeló a este engañabobos al instaurar una rimbombante Comisión Especial de Supervisión y Control de Compras COVID-19 (CESC), que habrá de apoyar al Ministerio de Salud Pública y a otros organismos sanitarios en las compras de insumos y servicios para contener la pandemia, así como en los “estudios de admisibilidad de los procesos solicitados por vía de excepción.
 ” Integran dicha comisión instituciones y funcionarios que ya tienen las atribuciones que ahora se conceden a la mencionada comisión.
-A toda costa, el Ejecutivo     quiere abrir la canilla
+A toda costa, el Ejecutivo quiere abrir la canilla
 En noviembre del año pasado, el Poder Ejecutivo dio los primeros pasos para conformar una comisión interinstitucional público-privada para avanzar en planes concretos para la racionalización del gasto público.
 A un año de aquel pomposo anuncio y pese a las promesas reiteradas de nuestras autoridades, hasta ahora se desconoce una hoja de ruta en esta materia.
 Por el contrario, ante la crisis económica que azota al país, el Gobierno ha optado por la salida más fácil, es decir, pedir al Congreso autorización para elevar el tope actual de endeudamiento fiscal, de 1,5% del PIB al 2,5%, con lo cual el resultado negativo podría pasar de US$ 600 millones a US$ 1.000 millones para la Administración Central.
@@ -9982,7 +9982,7 @@ Por tanto, debe hacer el mayor esfuerzo para despegarse de ellas, denunciando de
 Mazzoleni recomienda al Senado seguir con las sesiones virtuales
 El ministro de Salud, Julio Mazzoleni, respondió hoy la nota que había remitido la semana pasada el titular de la Cámara de Senadores, Blas Llano (PLRA), en que consultó sobre la posibilidad de retomar las sesiones de forma presencial.
 El presidente de la Cámara de Diputados, Pedro Alliana (ANR, cartista), también indicó que evaluarán esta semana la forma en que continuarán desarrollándose las sesiones.
-Marito, más preso de su entorno    que quienes están en Tacumbú
+Marito, más preso de su entorno que quienes están en Tacumbú
 No es la primera vez que van tras el cargo de la ministra Cecilia Pérez, pero definitivamente esta es una de las más sospechosas porque coincidió en tiempo y forma con la última crisis de violencia ocurrida en la principal penitenciaría del Paraguay.
 Casualidad o coincidencia, el mismo día que el senador Martín Arévalo confirmaba que le habían ofrecido el cargo de la ministra, la misma enfrentó el sangriento motín.
 Solamente gente con poder para ofrecer y hacer cambios pudieron haber ofertado el Ministerio de Justicia; estas no son propuestas que puedan hacer correligionarios de medio pelo.
@@ -10033,7 +10033,7 @@ Este lunes el ministro del Interior, Euclides Acevedo, y el ministro de la Secre
 El ministro Acevedo aseguró que confía “plenamente” en la Policía Nacional, argumentando que, aunque hay elementos corruptos en las filas policiales, “al mismo tiempo tenés a 25.000 policías a prueba de balas, con el salario miserable que reciben”.
 El ministro instó al público a que “paguen sus impuestos” para que lo recaudado se pueda emplear “no solamente para pagar salarios” sino también para invertir en equipar mejor a la Policía.
 Gobierno busca dejar de ser un “desastre”
-El presidente de la República, Mario Abdo Benítez, realiza una gira en el  departamento de Caaguazú y los líderes políticos regionales no desaprovecharon la oportunidad para halagarlo.
+El presidente de la República, Mario Abdo Benítez, realiza una gira en el departamento de Caaguazú y los líderes políticos regionales no desaprovecharon la oportunidad para halagarlo.
 En uno de los discursos, el senador Silvio “Beto” Ovelar dijo que el Presidente está cumpliendo todas sus promesas hechas durante su campaña electoral.
 Aseguró que ahora le dirán que “es un desastre”, pero que su gestión será recordada en la historia como la mejor. Por su parte, el intendente de Coronel Oviedo, Eladio González Torres (ANR), dijo que la ciudadanía en general apoya la gestión del Presidente y que muchas madres se levantan cada mañana a rezar por él, por la esperanza que depositan en su persona.
 El ministro de Desarrollo Social, Mario Varela, aseguró que el Gobierno actual ya hizo mucho y que durante esta gestión se seguirá teniendo nuevas rutas, puentes y hospitales.
@@ -10046,11 +10046,11 @@ La Federación Nacional Campesina (FNC) anunció esta tarde que se levanta la mo
 Insistieron en que el gobierno de Mario Abdo debe buscar una solución al problema de la tierra y no solo abocarse a los desalojos violentos.
 También afirmaron que están “hartos” de los politiqueros.
 Cerca de las 15:00 de esta tarde la FNC en conferencia de prensa desde la Plaza O’Leary informaron que decidieron levantar las movilizaciones realizadas en varios puntos del país, mientras que aquellos que llegaron hasta la capital se dispondrán a regresar a sus localidades, informó el periodista de ABC Cardinal, Eduardo Giménez.
-Gasto rígido estatal  se traga 97% de  tributos
+Gasto rígido estatal se traga 97% de tributos
 Se trata de un fuerte incremento, pues en 2018 absorbió el 91% de la recaudación impositiva.
 A esta situación se llega debido al aumento en salarios para educación, salud y seguridad.
 De cada 100 guaraníes que recauda el Tesoro, G. 75 van exclusivamente a sueldos estatales.
-Otros gastos rígidos del Estado son destinados al pago de    jubilaciones, pensiones y deudas.
+Otros gastos rígidos del Estado son destinados al pago de jubilaciones, pensiones y deudas.
 Senado da media sanción a la ley del horario escalonado
 Este jueves, en sesión ordinaria, el Senado aprobó en particular la modificación del proyecto de ley que establece horarios escalonados en las instituciones públicas en Asunción y Departamento Central, que con los cambios quedó sin ser de cumplimiento obligatorio.
 La Cámara de Senadores aprobó con modificaciones el proyecto de ley que establece un horario escalonado para los funcionarios de las instituciones estatales.
@@ -10073,7 +10073,7 @@ La perspectiva del bienestar abarcará todas las conversaciones, desde el cambio
 Además, también se dará una atención especial a la juventud, por si papel como actores y protagonistas del cambio, desde la política o desde la sociedad civil.
 Ante amenaza de juicio político, surge defensa en bloque a Fiscala General
 Mientras crece la tormenta de un posible juicio político a la Fiscala General del Estado, Sandra Quiñónez, también saltan intentos mediáticos para tratar de juntar respaldo hacia su imagen.
-Gremios de fiscales ya emitieron un comunicado de apoyo y en los grupos y  perfiles de los agentes del Ministerio Público están empapelados de publicaciones en respaldo a su número uno.
+Gremios de fiscales ya emitieron un comunicado de apoyo y en los grupos y perfiles de los agentes del Ministerio Público están empapelados de publicaciones en respaldo a su número uno.
 Funcionarios de la Fiscalía a través de diferentes redes sociales empezaron a viralizar mensajes para tratar de defender a Quiñónez, que es blanco de las críticas ante las acusaciones por la “vista gorda” que hace la institución ante casos que resuenan, como es el del expresidente Horacio Cartes, con orden de detención en el Brasil por presuntamente encubrir en la clandestinidad a su hermano del alma, Dario Messer.
 No se tocarán años de jubilación, aseguran
 El proyecto de ley que crea la Superintendencia de Jubilaciones no modificará el límite de edad para jubilación ni su monto, como tampoco los fondos van a ser “confiscados” por el Estado, como creen algunos sindicatos, según aclararon autoridades de Hacienda.
@@ -10168,7 +10168,7 @@ El volumen de hormigón que se usó también varió.
 Asimismo, se le agregó una escalera metálica en ambos lados del paso peatonal, que se sumaron a las rampas que se previeron en un principio.
 También vimos la opción de agregar a la pasarela unas terminaciones muy típicas nuestras de ñanduti, unos enchapados hechos, que representan muy bien el espíritu nacional de la artesanía local”, explicó a ABC el arquitecto José Kronawetter, director de Obras del MOPC.
 Temporal derriba tinglado de un colegio en Karapã'i
-La intensa lluvia, acompañada  de fuertes vientos, derrumbó esta tarde el tinglado del Colegio Nacional 14 de Mayo de la localidad de Karapã'i, departamento de Amambay.
+La intensa lluvia, acompañada de fuertes vientos, derrumbó esta tarde el tinglado del Colegio Nacional 14 de Mayo de la localidad de Karapã'i, departamento de Amambay.
 Según un informe preliminar de la Policía local, cuando eran las 15:00 de este viernes, la intensa lluvia que cayó en la zona, acompañada de ráfagas de viento, hizo que la estructura del tinglado del colegio se veniniera abajo.
 Felizmente, ninguno de los alumnos se encontraban bajo el tinglado y la única persona herida fue identificada como Marina Vera, paraguaya, soltera, de 40 años de edad, quien se desempeñaba como cantinera de la institución educativa.
 La mujer tiene una herida a la altura de la cabeza, porque una de las chapas levantadas por el viento terminó por caer sobre ella, fue trasladada hasta la localidad de Santa Rosa del Aguaray, en donde fue atendida por personal de blanco y y se encuentra estable, según se informó.
@@ -10181,7 +10181,7 @@ El colegio Ysaty tiene unos 1.200 estudiantes, explicó Apuril.
 Costó G. 46 millones acondicionarlo según demanda el protocolo sanitario.
 El 50% se cubrió con fondos del Ministerio de Educación (MEC) y el otro 50% con aporte de los padres.
 La cooperadora escolar pidió G. 200.000 de entrega voluntaria para ello, detalló la directora.
-Hay que acabar con la  extorsión de los funcionarios
+Hay que acabar con la extorsión de los funcionarios
 Las cartas están echadas en el estudio del Proyecto de Presupuesto General de la Nación para el 2020.
 El extenso documento presentado por el Poder Ejecutivo ya ha sido destrozado por la Cámara de Diputados en una primera instancia, mediante la inclusión de beneficios indignantes en favor de su clientela política.
 El Senado, por fortuna y gracias a la presión ciudadana, ha puesto un toque de mayor racionalidad y lo ha reencauzado, aunque también mantuvo una serie de beneficios para algunos segmentos del funcionariado.
@@ -10210,7 +10210,7 @@ Hasta el momento hay 32 guardiacárceles imputados y con prisión preventiva, in
 Guardiacárceles irán a huelga desde este jueves
 Sindicatos de guardiacárceles y funcionarios del registro civil del país anunciaron que entrarán en huelga a partir de este jueves, exigiendo reivindicaciones económicas.
 Este martes, ocho sindicatos de guardiacárceles y dos de funcionarios del Registro Civil anunciaron que este jueves darán inicio a una huelga en exigencia de reajustes salariales y otras reivindicaciones al Ministerio de Hacienda.
-Otro repudiable abuso de la    Municipalidad contra los asuncenos
+Otro repudiable abuso de la Municipalidad contra los asuncenos
 Bajo la gestión del exintendente Mario Ferreiro y la del actual Óscar Rodríguez (ANR), la Municipalidad de Asunción ha venido ocultando de hecho, en violación de la Ley Nº 5282/14, “de libre acceso ciudadano a la información pública y transparencia gubernamental”, tanto lo referente a la cuantía de su personal como al monto de sus remuneraciones.
 El art. 3º de dicha ley obliga a los Gobiernos municipales a “prever la adecuada organización, sistematización, informatización y disponibilidad” de la información pública, para que sea “difundida en forma permanente, a los efectos de asegurar el más amplio y fácil acceso a los interesados”.
 Absuelven a Oviedo Matto y acusan de falso testimonio a fiscala Giménez
@@ -10243,7 +10243,7 @@ El Gobierno anunció que ayer se logró la colocación en el mercado internacion
 El ministro describió esta nueva colocación de bonos como “una transacción sin precedentes para la República”, mencionando no solo la alta demanda de parte de los interesados en la compra de los mismos, que fue 6 veces más de lo ofertado, sino también porque se logró una de las tazas de intereses más bajas hasta ahora en un plazo de 11 años.
 A través de un comunicado, Hacienda indicó que el dinero obtenido se usará por parte, específicamente unos US$ 487 millones para financiar el presupuesto 2021 y otros US$ 339 millones para recomprar los bonos que vencen en 2023.
 Según Hacienda, esto “no implica un aumento en el stock de la deuda pública”.
-Marito y Bacigalupo no le piden    al Estado apretarse el cinto
+Marito y Bacigalupo no le piden al Estado apretarse el cinto
 Dado que nuestro país no se librará del fuerte impacto que la pandemia del coronavirus está teniendo en la economía mundial, es razonable que el Poder Ejecutivo esté preparando una serie de medidas presupuestarias, tributarias y financieras de emergencia que, en opinión del empresariado, ya deberían tener sanción legislativa la próxima semana.
 La premura respondería al hecho de que, por de pronto, las “drásticas” restricciones dispuestas el 10 de marzo por el Ministerio de Salud Pública y Bienestar Social (MSPBS) ya están afectando al sector terciario, según una encuesta de la Comisión Nacional de Comercio y Servicios del Paraguay.
 Gremios piden al Ejecutivo que vete la ley sancionada que pretende transferir tierras de Marina Cue
@@ -10294,7 +10294,7 @@ Luego de que el juez Mirko Valinotti le denegara la salida procesal al exjugador
 Ya se encuentran en su lugar de reclusión, la Agrupación Especializada de la Policía Nacional.
 Luego de la audiencia ante el juez en el Palacio de Justicia, donde supuestamente estaba "en pleno goce de su derecho de libertad”, según el magistrado, el exjugador se trasladó hasta el hotel Sheraton de Asunción, pero menos de dos horas después fue detenido junto a su hermano Roberto de Assis Moreira por la Policía Nacional y remitido luego a la Agrupación Especializada.
 Islote de Itá Pytã Punta fue parte de un volcán
-La bajante del río Paraguay permitió a los geólogos realizar estudios del islote de Itá Pytã Punta, el cual según  indicaron formó parte de un edificio volcánico con actividad en el pasado.
+La bajante del río Paraguay permitió a los geólogos realizar estudios del islote de Itá Pytã Punta, el cual según indicaron formó parte de un edificio volcánico con actividad en el pasado.
 Moisés Gadea, miembro del grupo, comentó que conforme a las características de la formación rocosa “muy cerca debió existir algún conducto volcánico por el cual emergían los materiales”.
 Piden que precio del pasaje baje a G. 2.000
 Representantes de centrales obreras propusieron hoy al Gobierno una serie de medidas que afirman son necesarias para enfrentar el periodo de cuarentena por el coronavirus.
@@ -10363,9 +10363,9 @@ Los diputados instaron al Ejecutivo a que se ejecute en la brevedad posible y qu
 Para percibir dichos pagos, los trabajadores deberán inscribirse ante la Subsecretaría de Estado de Tributación como contribuyente, según corresponda, con el fin de disponibilizar el tercer y cuarto pagos del subsidio.
 Este subsidio será financiado con el saldo no ejecutado de la línea de crédito autorizada por el Artículo 33 de la ley Nº 6524/2020 de Emergencia.
 La normalidad volvería en tres meses y será gradual
-Ministros de Salud, Hacienda e  Industria y Comercio analizaron en ABCTV coyuntura, anoche.
+Ministros de Salud, Hacienda e Industria y Comercio analizaron en ABCTV coyuntura, anoche.
 Desde hoy volverá a trabajar el sector de la construcción civil con medidas de seguridad.
-Uso obligatorio  de tapabocas, distanciamiento mínimo y otras medidas serán modos de vida.
+Uso obligatorio de tapabocas, distanciamiento mínimo y otras medidas serán modos de vida.
 Totalizan 147 los infectados con 13 nuevos casos positivos de covid-19 registrados ayer.
 Cuarta jornada ininterrumpida de protestas se focalizan en Abdo y Cartes
 Las protestas ciudadanas prosiguen hoy en dos frentes, con la presencia de manifestantes en los alrededores del Congreso Nacional y de la casa del expresidente Horacio Cartes, sobre la Avda. España.
@@ -10379,7 +10379,7 @@ De ninguna manera están de más estas suspicacias, pues bien se sabe que el pa�
 Es preciso que las normativas no sean letra muerta.
 El crimen organizado, sobre todo, dispone de ingentes recursos que puede destinar a la compra de conciencias para que las autoridades competentes hagan la vista gorda.
 Campesinos de nuevo cierran la Ruta PY05
-Integrantes de la Federación Nacional Campesina FNC  de nuevo cerraron esta tarde desde las 16:00 horas la Ruta PY05 en esta ciudad, específicamente frente al monumento del Club de Leones, para pedir al gobierno una reforma agraria.
+Integrantes de la Federación Nacional Campesina FNC de nuevo cerraron esta tarde desde las 16:00 horas la Ruta PY05 en esta ciudad, específicamente frente al monumento del Club de Leones, para pedir al gobierno una reforma agraria.
 Los agricultores solicitan al Ministerio de Agricultura y Ganadería (MAG) la entrega de tierras y la permanente capacitación para producir diversos rubros.
 La movilización se llevó a cabo sobre la Ruta PY05 y el dirigente regional de la FNC Carlos Medina dijo que hoy se movilizaron en horas de la tarde unos 40 labriegos del departamento de Concepción.
 Manifestó que la movilización continuará mañana y posteriormente hasta que las autoridades nacionales respondan a lo que ellos solicitan.
@@ -10484,7 +10484,7 @@ A través de este material reconstruimos las partituras, respetando el texto dra
 Diputados se abroquelan al mejor estilo mafioso
 En una rauda y bochornosa sesión, los diputados resolvieron por amplias mayorías que los procesados Carlos Portillo (PLRA), Tomás Rivas (ANR) y Ulises Quintana (ANR) sigan deshonrando la Cámara, al rechazar sus respectivas pérdidas de investidura.
 Se ha visto así que no les interesa que ese cuerpo legislativo sea más o menos “honorable”, sino que se empeñan en que, al concederse protección mutua al mejor estilo de la mafia, se parezca bastante a un vulgar aguantadero.
-No se busca privatizar la ANDE, sino   abrir el mercado eléctrico a la inversión
+No se busca privatizar la ANDE, sino abrir el mercado eléctrico a la inversión
 El Sindicato de Trabajadores de la ANDE defiende la idea de que existe una “campaña para desprestigiar, desfondar y dar (esa empresa) al sector privado”.
 En primer lugar, no hace falta campaña alguna para “desprestigiar” a la ANDE, ya que se desprestigia sola con su pésimo servicio y su clientelismo.
 En segundo término, no existe proyecto alguno para privatizar la entidad, como pretenden hacer creer los sindicalistas y autoridades de la misma.
@@ -10570,7 +10570,7 @@ Recién ahora, MOPC inició pagos por expropiaciones en la zona del futuro túne
 La entrega de los cheques por transferencia estuvo a cargo de la Dirección de Bienes Inmobiliarios del MOPC y de la empresa constratista de esta obra, Tecnoedil SA (Paul Sarubbi), pero no se informó el monto desembolsado, ni tampoco la cantidad de las propiedades liberadas.
 Lo concreto es que la cartera prevé una inversión de US$ 4 millones en concepto de expropiaciones.
 En total, según los datos, se tienen 81 afectaciones, pero que aún no cierran los trabajos de campo, según había informado en su momento la institución.
-Otro atropello de la ANDE    a los consumidores
+Otro atropello de la ANDE a los consumidores
 La deplorable Administración Nacional de Electricidad (ANDE) estima que deberá “corregir aproximadamente 40.000 facturas”, pues sus respectivos montos fueron calculados según el promedio del consumo anual.
 En otros términos, como en abril no realizó la lectura de los medidores, tuvo la ocurrencia de apelar a una estimación arbitraria, sin atender que el estado de emergencia obligó al abandono de viviendas así como al cierre de fábricas, locales comerciales y restaurantes, entre otros establecimientos.
 Una práctica inaceptable en una empresa pública que se las da de seria.
@@ -10653,7 +10653,7 @@ Gobierno remarca que vuelos ofrecidos por agencias deben tener precios “humani
 “El diálogo que tuvimos hoy con las agencias de viajes y turismo es el hecho que esos vuelos tienen que tener necesariamente esta condición de humanitarios, tiene que brindar la seguridad y la posibilidad a los compatriotas de retornar, de ser posible gratis, y de no ser posible al menor costo, no a precio de mercado regular”, indicó el ministro asesor de Asuntos Internacionales, Federico González.
 El ministro remarcó que los responsables de las empresas que ofrecen estos servicios de retorno al país desde el exterior tenían asumida esa condición y “comprendieron muy bien y estaban convencidos de eso”, lo cual facilitó que exista un acuerdo entre el gobierno y estas empresas para acceder a los permisos.
 El gobierno tiene programado hasta el 25 de julio el retorno de al menos 761 compatriotas de países como Argentina, Perú, Chile y Brasil.
-No obstante, la cifra de paraguayos queriendo retornar alcanzaría  a 22.000
+No obstante, la cifra de paraguayos queriendo retornar alcanzaría a 22.000
 Desde Argentina hay varios paraguayos que reclaman su repatriación y que incluso denuncian supuestos condicionamientos.
 Al respecto, el ministro dijo que se encuentran permanentemente ayudando a los connacionales a retornar y que a nadie se le pone condiciones.
 “En la próximas horas están regresando unas 380 personas que irán a albergues, por lo que es poco probable que se les haya puesto condiciones (de que tenían que pagar para ir a Hoteles Salud)”, dijo.
@@ -10712,7 +10712,7 @@ Las medidas para ello son simples y efectivas: lavado frecuente de manos, uso de
 Pero el nuevo Decreto 4990 del Poder Ejecutivo, que, entre otras cosas, limita el horario en el cual pueden circular las personas, emitido luego de más de un año de restricciones ininterrumpidas a actos lícitos de la población, constituye un abuso de autoridad que ya resulta absolutamente intolerable.
 En una democracia, los derechos fundamentales de los ciudadanos no se pueden cercenar de manera permanente bajo ningún concepto, y mucho menos por simple decreto del Presidente de la República.
 Tirón de orejas a MOPC y gobernación
-Habitantes de  María Auxiliadora y  San Carlos,  del distrito de Fuerte Olimpo (Alto Paraguay), ya no quieren quedar aislados debido a la anegación del camino, por lo cual ayer realizaron una manifestación para reclamar públicamente al MOPC y a la gobernación que completen la reparación del tramo afectado, de nueve kilómetros, hagan alcantarillados y construyan puentes.
+Habitantes de María Auxiliadora y San Carlos, del distrito de Fuerte Olimpo (Alto Paraguay), ya no quieren quedar aislados debido a la anegación del camino, por lo cual ayer realizaron una manifestación para reclamar públicamente al MOPC y a la gobernación que completen la reparación del tramo afectado, de nueve kilómetros, hagan alcantarillados y construyan puentes.
 “El Inglés” está listo para operar una vez superada la pandemia por COVID-19
 Tras un largo proceso de recuperación, la Locomotora 60, también llamada “El Inglés”, está lista para operar después de 156 años de su primera llegada a Ypacaraí.
 El arranque de prueba se pospuso para luego de que se supere la pandemia por COVID-19.
@@ -10730,7 +10730,7 @@ En referencia a algunos casos que se dieron días atrás como reclamo de algunos
 En un comunicado emitido este lunes, el Centro de Coordinación Interinstitucional de Apoyo al Ministerio de Salud Pública y Bienestar Social para enfrentar la pandemia lamentó los actos de vandalismo que han ocasionado daños materiales en algunos albergues puestos a disposición de connacionales repatriados desde el exterior.
 Inauguran mejoras en la estación ferroviaria de Luque y anuncian proyectos con capital privado
 Esta mañana fueron inauguradas las obras de restauración y puesta en valor de la Estación de Ferrocarril de la ciudad de Luque, catalogada como Patrimonio Histórico Nacional.
-El presidente de Ferrocarriles del Paraguay SA, Lauro Ramírez, anunció  varios proyectos ferroviarios que serán financiados con capital privado.
+El presidente de Ferrocarriles del Paraguay SA, Lauro Ramírez, anunció varios proyectos ferroviarios que serán financiados con capital privado.
 Las obras de restauración y puesta en valor de la Estación de Ferrocarril de la ciudad de Luque, catalogada como Patrimonio Histórico Nacional y uno de los primeros edificios construidos para el sistema ferroviario en Paraguay en el año 1861, fueron impulsadas por el Ministerio de Obras Públicas y Comunicaciones (MOPC).
 Los mismos fueron ejecutados por la empresa Mes Trading & Service y tuvieron un valor de ₲ 1.862.369.242 (unos US$ 286 millones).
 El evento de inauguración contó con la presencia del presidente de la República, Mario Abdo Benítez, y el ministro de Obras Públicas, Arnoldo Wiens.
@@ -10798,7 +10798,7 @@ El fiscal de caso, junto a su colega Alicia Sapriza, indicó que la salida por l
 MAG distribuyó 50.000 kits de semillas
 El titular del Ministerio de Agricultura y Ganadería (MAG), Rodolfo Friedman, informó hoy en Palacio de López, que la cartera de Estado ya alcanzó el objetivo de establecer unas 50.000 huertas; sin embargo, la sola distribución de kits de semillas no garantiza que los receptores hayan sembrado ni preparado sus tablones.
 El MAG informó hoy que no solamente se alcanzó, sino que se superó la meta del plan de establecer 50.000 huertas; sin embargo, la larga mala experiencia de la Cartera de Estado en la distribución de insumos, de sendos programas del MAG, en los últimos 30 años, permiten que hoy se pueda desconfiar.
-La Secretaría Nacional de Inteligencia de nuestro país, finalmente, confirmó la huida de los prófugos Juan Arrom, Anuncio Martí y Víctor Colmán del Uruguay, y afirman que habrían conseguido documentación  del Alto Comisionado de las Naciones Unidas para los Refugiados (ACNUR), lo que les daría vía libre para llegar a su destino, Finlandia.
+La Secretaría Nacional de Inteligencia de nuestro país, finalmente, confirmó la huida de los prófugos Juan Arrom, Anuncio Martí y Víctor Colmán del Uruguay, y afirman que habrían conseguido documentación del Alto Comisionado de las Naciones Unidas para los Refugiados (ACNUR), lo que les daría vía libre para llegar a su destino, Finlandia.
 Según los datos de la agencia de inteligencia local, los tres se encuentran aún rumbo a España en un avión de la empresa Iberia, que debe aterrizar esta madrugada en España para hacer escala.
 Luego deben dirigirse posiblemente a Helsinki, la capital finlandesa.
 Festejan 27 años de Tavaí con un festival
@@ -10846,7 +10846,7 @@ Abdo entregó la presidencia del Mercosur
 El presidente de la República del Paraguay, Mario Abdo Benítez, entregó la presidencia pro témpore del Mercosur a su par de Uruguay, Luis Lacalle Pou.
 En su discurso, señaló que la pandemia de COVID-19 ha demostrado la importancia del comercio electrónico para la reactivación de la economía principalmente en las fronteras.
 Celebración en honor a la Virgen en Nueva Jersey
-Una réplica de la  Basílica de Caacupé es preparada por un grupo de paraguayos que viven en Nueva Jersey para una gran misa a celebrarse esta noche a las 8:00,  por el obispo del Vicariato Apostólico del  Chaco Gabriel Escobar,  acompañado de los padres Neris Vega y Pablo Cáceres.
+Una réplica de la Basílica de Caacupé es preparada por un grupo de paraguayos que viven en Nueva Jersey para una gran misa a celebrarse esta noche a las 8:00, por el obispo del Vicariato Apostólico del Chaco Gabriel Escobar, acompañado de los padres Neris Vega y Pablo Cáceres.
 Enrique Lombardo está trabajando arduamente con un grupo de paraguayos y amigos latinos para la gran misa de esta noche a las 8:00 pm cuando la parroquia María Madre de Dios, de Hillsborough, Nueva Jersey homenajeará a la Virgen de Caacupé, patrona del Paraguay.
 La festividad se realiza en esta ciudad de Estados Unidos desde hace cuatro años, nos cuenta Enrique, músico guitarrista, feligrés del ministerio de esta iglesia.
 Oriundo de Coronel Oviedo, es activo organizador del emotivo acontecimiento, y es a la vez una oportunidad para que los hijos de compatriotas que viven allá conozcan la cultura y a la considerada “Madre celestial” de los paraguayos.
@@ -10898,7 +10898,7 @@ Bloqueos intermitentes en zona del Botánico en protesta contra obras
 Un grupo de ciudadanos se congregó frente al Jardín Botánico de Asunción en protesta contra el inicio de obras del viaducto, gracias a un amparo judicial.
 Los manifestantes realizan bloqueos intermitentes en la vía de acceso a Asunción, lo que generó un caos en el tránsito en la Avda. Primer Presidente.
 El grupo que propugna la defensa del insigne espacio verde de la Capital se congregó en la zona de obras y procedieron a realizar momentáneos cortes de una de las vías, lo que por la hora generó una extensa cola de vehículos que intentan ingresar a la Capital.
-A frenar las deudas y    acelerar las reformas
+A frenar las deudas y acelerar las reformas
 La deuda pública del Paraguay está llegando a niveles máximos históricos, acelerada este año por la imprevista pandemia que hizo saltar anticipadamente las alarmas.
 Sectores políticos de diferentes colores y actores del ámbito privado están advirtiendo que este mecanismo de financiación de gastos e inversiones del Estado debe sufrir un frenazo, no solo por llegar a los techos recomendados por organismos internacionales, sino también por la brusca caída y lenta recuperación esperada de las recaudaciones tributarias.
 Ante este panorama, el Ejecutivo debe imperiosamente construir consensos políticos y trabajar denodadamente en acelerar las reformas en el sector público, cortar la “grasa” del Estado y hacerlo más eficiente a fin de incentivar y coadyuvar en la recuperación económica.
@@ -10963,7 +10963,7 @@ Posteriormente, se celebrará la misa a las 10:00, que será presidida por el pa
 El templo Niño Jesús tiene 46 años de creación y actualmente el delegado es Elías Pereira, desde hace dos años.
 El mismo manifestó que con ayuda de los pobladores lograron hacer varias mejoras en la parte frontal de la capilla.
 Además, lograron colocar 250 metros cuadrados de cielorraso para contrarrestar el intenso calor.
-Hoy inician las clases  presenciales y virtuales en 8.836 escuelas oficiales
+Hoy inician las clases presenciales y virtuales en 8.836 escuelas oficiales
 En conferencia de prensa, ayer, el ministro de Educación, Eduardo Petta, afirmó que el 77% de las instituciones educativas oficiales están acondicionadas y cumplen con las exigencias del protocolo sanitario para recibir desde hoy a los alumnos cuyos padres hayan elegido la educación híbrida, en parte presencial y en parte virtual.
 Son 6.673 escuelas y colegios de un total de 8.836 existentes a nivel nacional.
 El viceministro de Educación, Robert Cano, explicó que de unos 1.200.000 matriculados, alrededor de 729.000 alumnos estudiarán de manera presencial este mes.
@@ -10977,7 +10977,7 @@ Pacto Abdo-Cartes en el Partido Colorado no fue en vano, afirma senador Silvio O
 En conversación con ABC Cardinal 730AM, el senador Silvio Ovelar fue consultado acerca de si debido a la situación de emergencia sanitaria y la postergación de las elecciones, podría haber sido en vano el pacto Abdo-Cartes, a lo que Ovelar respondió:
 “Cualquier acuerdo al interior del partido que genere gobernabilidad al gobierno siempre va a ser bueno, independientemente a que se den hechos como el que hoy acontece en el mundo entero que es producto de la pandemia del COVID-19”, señaló el senador.
 Telecomunicaciones, agro y construcciones, sectores que repuntan en medio de la crisis
-Contados son los rubros que muestran repuntes en sus actividades  en medio de la crisis por el covid -19, entre los que se destacan  las telecomunicaciones, las construcciones y los  agronegocios.
+Contados son los rubros que muestran repuntes en sus actividades en medio de la crisis por el covid -19, entre los que se destacan las telecomunicaciones, las construcciones y los agronegocios.
 El analista Amílcar Ferreira destacó estos tres sectores (Telecomunicaciones, Agro y Construcciones) como los más pujantes en la actualidad, a pesar de la fuerte crisis económica, en un año que se prevé una retracción del 3,5% en el PIB.
 A la cabeza de los rubros que les va bien este año está el servicio de Telecomunicaciones, que en lo que va del año ha tenido un aumento del 15% en su facturación, según se extrae de datos del Estimador Cifras de Negocios del BCP, detalló Ferreira.
 Según explicó, esto se debe principalmente a necesidad y obligación en que se vieron muchos ciudadanos para mejorar la conectividad de internet en sus casas.
@@ -10993,7 +10993,7 @@ Esmérita Sánchez, una de las proyectistas, se expresó a favor de la aprobaci�
 Gracias a todos ellos y solicito la aprobación del proyecto”, señaló.
 En el mismo sentido se pronunciaron Hugo Ramírez, Bachi Núñez, Roque Sarubbi, entre otros legisladores.
 Expo Cuero aguarda a turistas en Atyrá desde hoy
-Con el lema “Te cuido, me cuidas y nos cuidamos," se dio inició hoy a la XVI Edición de la Expo Cuero Atyrá,  en la peatonal Indio José con un reducido grupo de feriantes y con el cumplimiento estricto de los protocolos sanitarios para evitar un contagio masivo del covid-19.
+Con el lema “Te cuido, me cuidas y nos cuidamos," se dio inició hoy a la XVI Edición de la Expo Cuero Atyrá, en la peatonal Indio José con un reducido grupo de feriantes y con el cumplimiento estricto de los protocolos sanitarios para evitar un contagio masivo del covid-19.
 El horario de atención es de 08:00 a 20:00, estableciendo entradas por turnos de diez personas por vez.
 El lanzamiento del evento se realizó anoche en la peatonal Indio José, con la presencia del intendente Juan Carlos Matto y el presidente de la Asociación de Artesanos Atyreños Miguel Maidana, además de invitados especiales.
 En la ocasión se dieron a conocer los protocolos sanitarios a ser aplicados durante la realización del evento.
@@ -11026,7 +11026,7 @@ En ese sentido sugirió que se habilite un punto de salida y otro punto de entra
 Propuso que se hagan retenes en los puntos de acceso a Ponta Porã para evitar el ingreso de personas provenientes de otras ciudades brasileñas.
 Analizan cómo revertir resultados del Snepe
 Docentes, estudiantes y el viceministro de Educación Robert Cano analizaron el jueves, en la mesa de trabajo virtual o “aty guasu”, la necesidad de una hoja de ruta para revertir los resultados del Snepe (Sistema Nacional de Evaluación del Proceso Educativo).
-En las  últimas pruebas, practicadas en 2018 en el 93% de las instituciones educativas del país, los estudiantes tuvieron un rendimiento peor que en 2015 en matemática, castellano y guaraní.
+En las últimas pruebas, practicadas en 2018 en el 93% de las instituciones educativas del país, los estudiantes tuvieron un rendimiento peor que en 2015 en matemática, castellano y guaraní.
 Durante el aty guasu, los docentes y estudiantes plantearon la necesidad de mayor inversión en educación para mejorar las condiciones de enseñanza en el aula.
 Este planteamiento, sin embargo, va de contramano a la decisión del Gobierno Nacional, que para el 2021 prevé una reducción del 8% en el presupuesto previsto para el Ministerio de Educación y Ciencias (MEC).
 Los maestros también consideraron que la cantidad de estudiantes por aula es igualmente una dificultad al momento de enseñar.
@@ -11061,14 +11061,14 @@ Los ediles trataron sobre tabla por la urgencia el caso “y teniendo en cuenta 
 La Iglesia católica, sin embargo, desarrollará sus actividades previstas normalmente, en el marco del festejo del día de San Miguel Arcángel, dentro del protocolo covid-19.
 Santiago Díaz, coordinador pastoral, informó que en la fecha se realiza el remate de ganado y mañana habrá misa con cantidad reducida de fieles y la tradicional procesión con la imagen del santo protector se realizará en vehículo.
 Presidenciable indígena mantiene leve ventaja
-El candidato indígena a la presidencia de Ecuador,  Yaku Pérez,  mantiene una ventaja de 12.159 votos sobre el liberal Guillermo Lasso, cuando se procesaron el 99,54% de las actas de las   presidenciales del pasado domingo.
-Aún faltan por computar actas que   presentaron alguna incidencia.
+El candidato indígena a la presidencia de Ecuador, Yaku Pérez, mantiene una ventaja de 12.159 votos sobre el liberal Guillermo Lasso, cuando se procesaron el 99,54% de las actas de las presidenciales del pasado domingo.
+Aún faltan por computar actas que presentaron alguna incidencia.
 En cifras absolutas esto representa 1.758.185 votos para el candidato Pérez –del movimiento Pachakutik– que se presenta por primera vez a una elección presidencial, y 1.746.026 para el líder del movimiento Creando Oportunidades (CREO) –Lasso– que suma con esta su tercera contienda para llegar a la Presidencia.
 El recuento adquirió un dramatismo excepcional porque la diferencia entre el segundo y tercer candidato es muy pequeña para saber aún quién acompañará al correísta Andrés Arauz en el balotaje del 11 de abril.
 Arauz, ganador de los comicios, obtiene hasta ahora el 32,36 % de los votos, porcentaje insuficiente para hacerse con la Presidencia en una sola vuelta.
 Mejoras en hospital de Luque hicieron que se cumplan las ordenanzas por unos momentos
 Esta mañana se llevó a cabo la inauguración del nuevo pabellón “Azul y Oro” del Hospital General de Luque.
-Después de casi dos años de que haya sido conformada para ocuparse del desastroso proyecto del Metrobús, el pasado 14 de agosto la Comisión Bicameral de Investigación (CBI) –presidida por el diputado Ramón Romero Roa (ANR)– presentó sus  conclusiones en una audiencia virtual, con tres dictámenes: dos  confirmando serias irregularidades en el gerenciamiento de la fracasada obra, y uno optando por no emitir una clara opinión sobre las causas del colapso del polémico proyecto de transporte público de pasajeros, sin duda con el obvio propósito de exculpar a los responsables de su desprolija administración.
+Después de casi dos años de que haya sido conformada para ocuparse del desastroso proyecto del Metrobús, el pasado 14 de agosto la Comisión Bicameral de Investigación (CBI) –presidida por el diputado Ramón Romero Roa (ANR)– presentó sus conclusiones en una audiencia virtual, con tres dictámenes: dos confirmando serias irregularidades en el gerenciamiento de la fracasada obra, y uno optando por no emitir una clara opinión sobre las causas del colapso del polémico proyecto de transporte público de pasajeros, sin duda con el obvio propósito de exculpar a los responsables de su desprolija administración.
 Sistema de “telepeaje” comenzará a funcionar el sábado sobre la Ruta PY02
 Conductores podrán pagar peaje sin tener que parar la marcha mediante un dispositivo electrónico.
 El sistema entrará en vigencia en dos puestos sobre la Ruta PY02.
@@ -11093,11 +11093,11 @@ Caso Messer-HC: salta libreta de sobornos y cargas de cocaína
 Antonio Joaquim da Mota, uno de los vinculados a la estructura criminal integrada por Darío Messer y en la que también se relaciona al expresidente Horacio Cartes, tenía incluso una libreta donde apuntaba sobornos a autoridades paraguayas y sus cargamentos de cocaína, que hacía pasar por nuestro país desde Bolivia, según publica O Globo.
 “La Policía Federal ha identificado una extensa lista de agentes y autoridades paraguayas que han sido sobornados para hacer la vista gorda al mega esquema de tráfico de cocaína y pasta base de un millón de dólares, donde está incluido el empresario brasileño Antonio Joaquim da Mota “Tonho”, que cubrió a Darío Messer durante el período que estuvo huyendo en Paraguay”, publica O Globo de Brasil.
 Alumnos de Arquitectura fabrican mascarillas con impresoras 3D
-Alumnos de la Facultad de Arquitectura, Diseño y Arte  (FADA) de la UNA fabrican mascarillas con impresoras 3D para donar al personal médico que trabaja en la contención de la epidemia de COVID-19 en nuestro país.
+Alumnos de la Facultad de Arquitectura, Diseño y Arte (FADA) de la UNA fabrican mascarillas con impresoras 3D para donar al personal médico que trabaja en la contención de la epidemia de COVID-19 en nuestro país.
 Se distribuyen de manera gratuita y piden ayuda a la ciudadanía para la donación de los insumos.
 “Dijimos´ bueno, tenemos que proteger al personal de blanco, a los médicos, a las enfermeras, a todo el personal que va a estar en contacto directo con las personas enfermas y contagiadas´.
 Entonces pensamos en estas máscaras de protección que se pueden fabricar digitalmente", explicó a ABC TV el decano de la Facultad, Ricardo Meyer.
-En el primer trimestre de este año    estará terminado el Parque Logístico Abasto Norte, con 6.
+En el primer trimestre de este año estará terminado el Parque Logístico Abasto Norte, con 6.
 En el primer trimestre del 2021 estará terminado el Parque Logístico Abasto Norte, ubicado en el predio del mercado del mismo nombre, en la ciudad de Limpio.
 Este proyecto se inició a finales del 2019, con una construcción de 6.120 metros cuadrados, como consecuencia de la expansión industrial y comercial de la zona.
 “Esta obra cuenta con todos los equipamientos de prevención contra incendio y el sistema eléctrico interno está preparado para grandes industrias, con calles internas pavimentadas, predio amurallado y planta de tratamiento de efluentes”, destacó Blanca Aveiro, gerente general del Abasto Norte.
@@ -11137,7 +11137,7 @@ La víctima llegó a las 14:10 del martes al Hospital Regional de Concepción, d
 De ahí fue trasladado de urgencia hasta el aeropuerto de la ciudad, en una aeronave de la Fuerza Aérea Paraguaya que lo transportó hasta la base del Grupo Aerotáctico, en la ciudad de Luque.
 Poco después de arribar, una ambulancia del SEME lo trasladó hasta el CENQUER, donde ayer fue sometido a una intervención y actualmente está internado con pronóstico reservado.
 Caminera pone en marcha este viernes su Operativo Caacupé 2019
-Luis Christ Jacobs, director de la Patrulla Caminera, manifestó que el trabajo de los agentes a su cargo arrancará  este viernes, dependiendo del flujo de peregrinos.
+Luis Christ Jacobs, director de la Patrulla Caminera, manifestó que el trabajo de los agentes a su cargo arrancará este viernes, dependiendo del flujo de peregrinos.
 Esto significa que, aparte de forzar a las compungidas hijas del político liberal a difundir un video propagandístico, los criminales pretenden poner de rodillas al Estado y obligar a los destinatarios del rescate en especies a cometer la iniquidad de aceptarlo.
 Policía promete costear gastos médicos de conductor de Uber baleado
 Un grupo de conductores de ese servicio de transporte se manifestó frente a la Comandancia de la Policía Nacional, en repudio del asalto a uno de sus compañeros que fue herido de bala en el cuello.
@@ -11292,16 +11292,16 @@ Las revelaciones al respecto continuaron tras la asunción de Mauricio Macri com
 Sin embargo, lo que parecía indicar el sentido común, falló, pues el pasado domingo el candidato presidencial Alberto Fernández, con CFK para la Vicepresidencia, se aseguró una victoria ya en la primera vuelta.
 Parlasurianos, con G. 72 millones de combustible
 Sin ninguna justificación, figura rubro de G. 1.300 millones en combustible para Parlasur en 2020.
-Parlasurianos paraguayos son 18, se reúnen seis veces al año, en Uruguay, con gastos  cubiertos.
-Sus decisiones son declarativas, no vinculantes y la ciudadanía lo percibe como  zoquete político.
+Parlasurianos paraguayos son 18, se reúnen seis veces al año, en Uruguay, con gastos cubiertos.
+Sus decisiones son declarativas, no vinculantes y la ciudadanía lo percibe como zoquete político.
 En países vecinos esos cargos los ocupan los congresistas, pero aquí no corre ese proyecto.
 Gobierno tilda de “irresponsable” a representante de la ONU y le “retira confianza”
 El Gobierno nacional emitió un comunicado a través de Cancillería recriminando las expresiones hechas por el representante en América del Sur de la alta comisionada de las Naciones Unidas para los Derechos Humanos, Jan Jarab, a quien –afirman– el Gobierno nacional le retira su “confianza”, alegando que los cuestionamientos que realizaron al operativo contra el EPP, en el que murieron acribilladas dos niñas, los realizaron sin siquiera pedir información al Estado paraguayo, donde según ratifican, rige el “Estado de derecho”.
 Cancillería en su comunicado “rechaza rotundamente las expresiones del comunicado que aluden a las normas del Protocolo de Minnesota y considera irresponsables las expresiones del representante Jan Jarab, que insinúa posible alteración de los hechos, sin siquiera requerir y tomar conocimiento del informe oficial proveído por el Estado”, algo que según afirman, lleva al Gobierno nacional “al extremo de retirar la confianza al señor Jarab, en cuanto a su predisposición de entablar una comunicación fluida, directa, constructiva y permanente con las autoridades competentes del Estado paraguayo”.
-Informan  que se saturó sistema de salud pública
-Ocupación “casi total” del servicio de  terapia intensiva en hospitales de referencia del covid.
+Informan que se saturó sistema de salud pública
+Ocupación “casi total” del servicio de terapia intensiva en hospitales de referencia del covid.
 Lo reportaron los doctores José Fusillo y Liz Fernández, dos exponentes de la primera línea.
-También hay que atender otras patologías y  el problema es falta de camas y  de  especialistas.
+También hay que atender otras patologías y el problema es falta de camas y de especialistas.
 Ayer sumaron otros 14 fallecidos y cifra de internados trepó a 501, de los cuales 101 en UTI.
 Liberales repudian al Ministerio Público en Encarnación
 Un nutrido grupo deactivistas del comité de Encarnación del Partido Liberal Radical Auténtico (PLRA) realizó un “escrache” a la fiscal general del Estado, Sandra Quiñónez, frente a la sede del Ministerio Público en la capital de Itapúa.
@@ -11318,7 +11318,7 @@ La infraestructura de medicina crítica es importante y absolutamente necesaria�
 En otro momento, refirió que “todos los que estamos en el área de salud sabemos que el testeo masivo es la clave para diseñar tu estrategia de salida, lo que hoy se informa no es lo que hoy se registra, es de 14 días atrás”.
 Respecto al nuevo préstamo solicitado por el Ministerio de Hacienda para paliar la crisis generada por la pandemia, con el fin de aplicar reformas para la reactivación económica, Querey argumentó: "Desde el Congreso le decimos al Gobierno 'no más créditos, revisen'.
 Tienen que haber señales muy claras que el Salud y el equipo económico van a revisar esta situación o vamos a dejar endeudados a nuestro nietos y bisnietos".
-A su criterio, se  necesita inversión en construcción de viviendas e industria no en obras públicas.
+A su criterio, se necesita inversión en construcción de viviendas e industria no en obras públicas.
 El Indert tiene nuevo titular: Mario Vega
 Mario Vega es el nuevo presidente del Instituto Nacional de Desarrollo Rural y de la Tierra (Indert), según confirmó el ministro de Agricultura y Ganadería (MAG), Rodolfo Friedmann.
 Vega ocupará el cargo en reemplazo de Horacio Torres, quien renunció por verse salpicado por el escándalo de las coimas en la institución.
@@ -11431,7 +11431,7 @@ El Ministerio Público allanó una propiedad en este distrito, donde funciona un
 El Fiscal coadyuvante especializado en medio ambiente, Rubén Lial, indicó que no pudieron encontrar a los explotadores como tampoco ninguna maquinaria, sin embargo, explicó que se presentó un apoderado del propietario del inmueble identificado como Ramón Acuña, quien presentó una serie de documentaciones, pero ninguna de licencia ambiental, por lo que estarían explotando el mineral de forma ilegal.
 Ya son tres las posibles vacunas en la fase final
 Un proyecto en Reino Unido y otro en China en período final de pruebas se suman al de EE.UU.
-Los tres han producido  respuesta inmunitaria importante al covid  sin serios efectos adversos.
+Los tres han producido respuesta inmunitaria importante al covid sin serios efectos adversos.
 En Oxford informan que su opción, de ser efi- caz, puede fabricarse fácilmente a gran escala.
 Ayer fallecieron dos hombres (74 y 67), ambos con morbilidades, lo que eleva el número a 33.
 Pacto con HC: a Marito “no le queda de otra” que acordar, sostiene Lilian Samaniego
@@ -11471,7 +11471,7 @@ Esto motivó que el titular de la UIP, Gustavo Volpe, suspendiera la reunión y 
 “La idea era que participaran todos los sectores, por eso les invitamos a los de las centrales, pero no se puede así, con esta turba”, señaló Volpe en diálogo con la prensa.
 Llegó a Paraguay avión con insumos hospitalarios
 Un avión carguero con insumos hospitalarios para el Ministerio de Salud llegó anoche cerca de las 23:00.
-Sin embargo,  se desconoce aún el detalle del cargamento porque la apertura se realizará recién mañana a las 8:00.
+Sin embargo, se desconoce aún el detalle del cargamento porque la apertura se realizará recién mañana a las 8:00.
 Una aeronave de la empresa Air Class Cargo llegó alrededor de las 23:00 al Aeropuerto Internacional Silvio Pettirossi, conteniendo un cargamento con insumos hospitalarios y de bioseguridad que servirán para la contención de la pandemia del covid-19.
 Proviene de Hong Kong, China, según se informó.
 Corea del Sur donará US$ 11 millones a Aduanas y prometen mejorar sistemas informáticos
@@ -11491,7 +11491,7 @@ Este lunes, el titular del Centro de Empresarios del Transporte del Área Metrop
 Los mismos se mantienen en vigilia hasta una nueva reunión que mantendrán mañana.
 Funcionarios de ambos hospitales protagonizaron en la fecha una manifestación que por varios momentos se mostró tensa y tendiente a un enfrentamientos tanto con funcionarios de Hacienda como con antimotines de la Policía Nacional, exigiendo presupuesto para cubrir reivindicaciones salariales.
 Mirna López, vocera del gremio de los funcionarios Hospital de Traumas indicó que en la asamblea de esta noche resolvió seguir en vigilia hasta mañana a las 10:00, que tienen marcada una nueva reunión en el Ministerio de Salud con la Directora General de Administración y Finanzas, Martha Peña.
-Corrupción, desidia y necedad  en el sistema penitenciario
+Corrupción, desidia y necedad en el sistema penitenciario
 La fuga de 76 reos de la cárcel de Pedro Juan Caballero –la mayoría de ellos miembros del grupo criminal brasileño PCC– es una muestra espectacular de la inserción del crimen organizado en el aparato estatal.
 El 16 de diciembre último, la ministra de Justicia, Cecilia Pérez, había revelado que, según informes de “inteligencia penitenciaria”, se estaban ofreciendo 80.000 dólares para facilitar la evasión de uno o más de los reclusos que hoy están prófugos.
 También dijo que se había dado aviso inmediato a la Policía Nacional, a las Fuerzas Armadas y al Ministerio Público para resguardar las prisiones e identificar a los responsables del operativo entonces planeado.
@@ -11871,7 +11871,7 @@ Fue fundador del Movimiento del Nuevo Cancionero Paraguayo que tuvo a maltraer a
 Maneco fue compositor, periodista y docente.
 Él tenía dos años cuando empezó la guerra civil, en el año 1947.
 Recordaba a su padre, en elmuelle de Pinasco, agitando un pañuelo blanco.
-Poco tiempo después recibió de regalo su primera guitarra, pequeña, de juguete, con la cual cantaba sus propias  melodías.
+Poco tiempo después recibió de regalo su primera guitarra, pequeña, de juguete, con la cual cantaba sus propias melodías.
 En el año 1948 se mudaron a Asunción, donde también inició sus estudios en el Colegiode San José.
 También estudió en el Liceo Militar Acosta Ñu y en el Colegio Carlos Antonio López.
 Culminó sus estudios secundarios en el Colegio de Lasalle, en la Ciudad de Buenos Aires, república Argentina;
@@ -13590,7 +13590,7 @@ lo he encontrado.
 El XXXVIII Festival del Huaso de Olmué se realizó entre los días 19, 20 y 21 de enero de 2007 en El Patagual de Olmué, Chile.
 Día 1 (Viernes 19) .
 Renombrado como reformador y constructor religiosos del templo.
-Hijo de Ksitindradity y Narendralakshmi   Reinado .
+Hijo de Ksitindradity y Narendralakshmi Reinado .
 Bajo su regla el templo de Angkor Wat, la estructura religiosa más grande del mundo, fue construido.
 Fresa es un término mexicano utilizado también en Centroamérica para referirse a un estereotipo de jóvenes y en ocasiones adultos, cuya forma de vivir es, o aparenta ser, superficial.
 El término se usa como sustantivo (Fulano es un fresa).
@@ -13615,111 +13615,111 @@ El distrito peruano de Asunción es uno de los 21 distritos de la Provincia de C
 Limita al norte con la provincia de Bongará, al este con el distrito de Olleros, al sur con el distrito de Quinjalca y al suroeste con el distrito de Chiliquín.
 El distrito fue creado el 3 de noviembre de 1933 mediante Ley Nº 7877 y tiene una población estimada mayor a 300 habitantes.
 Su capital es el centro poblado de Asunción.
-Verificar que eres tú Para proteger tu cuenta, es posible que te pidamos que demuestres tu identidad si has cerrado sesión recientemente en tu dispositivo o si intentas llevar a cabo acciones sensibles como:  Iniciar sesión desde un dispositivo nuevo.
+Verificar que eres tú Para proteger tu cuenta, es posible que te pidamos que demuestres tu identidad si has cerrado sesión recientemente en tu dispositivo o si intentas llevar a cabo acciones sensibles como: Iniciar sesión desde un dispositivo nuevo.
 Ver las contraseñas guardadas.
 Cambiar la información de recuperación.
 Descargar tus datos.
-El guaraní está en un proceso de estandarización y modernización  .
-El estadio de desarrollo de la lengua guaraní exige contar con directrices de estilo claras para los profesionales que tendrán a su cargo el análisis de los términos existentes recogidos, como la elaboración de nuevas propuestas terminológicas, de manera a encarar estos trabajos con criterios lingüísticos y técnicos que se ajusten a las normativas generales de la lengua y a la sanción de su uso, como también a las normas técnicas de la ciencia de la traducción terminológica  .
-El guaraní es la lengua propia de América más vigorosa  .
-Además de Paraguay, es lengua oficial en Bolivia, en la provincia argentina de Corrientes y en el municipio de Takuru, en Mato Grosso do Sul, Brasil  .
-Es también idioma del Mercado Común del Sur (Mercosur), y lengua de trabajo en el Parlamento de este bloque de naciones  .
-Después de varios siglos de segregación y procesos de estigmatización, hoy esta lengua goza de políticas públicas favorables a su desarrollo y revalorización  .
-Criterios a tener en cuenta para la traducción de términos  .
-Esta variedad es utilizada por la población no indígena del país, como también por muchos pueblos indígenas, guaraní o no  .
-En la traducción que se desarrollará en el marco del proyecto, se utilizará la variedad paraguaya; es decir, el guaraní paraguayo  .
-En 2016, la Academia de la Lengua Guaraní (ALG) aprobó las primeras cuatro Reglas Ortográficas de la Lengua Guaraní, de manera a que se pueda escribir correctamente y de modo uniforme en este idioma  .
-La primera regla aprueba el Alfabeto Oficial  .
-En la misma, la Academia oficializa el alfabeto de 33 fonemas propios que se representan por medio de 33 grafemas o letras que son: A a, Ã ã, Ch ch, E e, Ẽ ẽ, G g, G̃ g̃ , H h, I i, Ĩ ĩ, J j, K k, L l, M m, Mb mb, N n, Nd nd, Ng ng, Nt nt, Ñ ñ, O o, Õ õ, P p, R r, Rr rr, S s, T t, U u, Ũ ũ, V v, Y y, Ỹ ỹ, ‘ (Puso)  .
-La segunda regla aborda el uso de la tilde acentual, es decir, la manera correcta de acentuar ortográficamente las palabras guaraní  .
-La tercera regla rige la formación de las sílabas nasales; la cuarta, la formación de palabras en esta lengua  .
-En la lengua guaraní, se presentan dos fenómenos muy recurrentes denominados armonización nasal y armonización vocálica  .
-La nasal se presenta en un contexto de nasalidad, y puede ser regresiva o progresiva; la oral se presenta en un contexto oral  .
-En Ne akã mbytépe, adjetivo posesivo ne (en vez de nde) representa una armonización regresiva, y mbytépe (en vez de pytépe), una armonización progresiva  .
-En la expresión Mbaꞌépa rejaporeína, la partícula re, que representa la segunda persona de singular, por armonización, se duplica como partícula de aspecto continuo  .
-Este tipo de atajos afecta la esencia de la lengua  .
-La lengua guaraní, en su construcción morfosintáctica y en la expresión de las intenciones del hablante, cuenta con recursos lingüísticos muy diferentes a los de las lenguas europeas  .
-Ella es una lengua eminentemente verbal; cuenta con más de 30 modos verbales, expresados a través de decenas de partículas que expresan las diferentes fuerzas ilocutivas  .
-No tiene artículos, tampoco posee géneros gramaticales  .
-Las palabras referidas a personas sí cuentan con géneros, plasmados a través de léxicos que expresan el masculino y el femenino  .
-En cuanto a la construcción sintáctica, en esta lengua, el poseedor precede a la cosa poseída; en castellano, en cambio, la cosa poseída precede al poseedor  .
-En vez de preposiciones cuenta con posposiciones  .
-Gua es una posposición, y va pospuesta a Paraguái; por ser monosilábica, va unida a este  .
-El guaraní es una lengua polisintética y aglutinante, por ello forma palabras uniendo partículas al lexema base  .
-Las partículas tanto prefijas como sufijas que modifican al lexema van unidas a él  .
-Construcción textual  .
-En los largos años de contacto, las dos lenguas oficiales y mayoritarias del Paraguay, el guaraní y el castellano, se han imbricado e interferido mutuamente, tanto en el aspecto morfosintáctico como en los recursos para expresar la fuerza ilocutiva  .
-En las traducciones del castellano al guaraní es frecuente la transferencia de la estructura de la lengua de partida, a través de calcos sintácticos  .
-Es muy corriente encontrar textos en guaraní con escasa o nula presencia de préstamos léxicos, pero con graves calcos sintácticos del castellano  .
-Las oraciones presentadas a continuación, por ejemplo, están expresadas con palabras en guaraní, pero en sintaxis castellana: Che haꞌe Ignacio, en vez de Che Ignacio, Cheréra Ignacio (Soy Ignacio); Areko peteĩ apañuãi, en vez de Cheapañuãi (Tengo un problema); Oguereko mokõi óga, en vez de Hogamokõi (Tiene dos casas)  .
-La transgresión de las normas sintácticas y pragmáticas afecta negativamente a una lengua  .
-Los calcos sintácticos agreden la estructura discursiva del idioma, dado que ataca directamente su esencia  .
-En las traducciones se cuidará esta naturaleza de la lengua, de manera a respetar el genio del idioma, que el mismo fluya por sus canales naturales correspondientes, así como borbota de la boca de sus hablantes nativos  .
-Uso de los verbos  .
-Expresiones como: Tengo una computadora nueva, se traducirá: Chekomputadóra pyahu, en vez de Areko peteĩ komputadóra pyahu; Me duele la cabeza, Cheakãrasy, en vez de Hasy chéve che akã  .
-Por medio de verbos como: Entrar, pulsar, escribir, introducir, publicar, rechazar, se invita al usuario a navegar  .
-En castellano, estos verbos se presentan en infinitivo, y es la forma correcta para expresar invitación u orden  .
-En el trabajo, estos verbos se expresarán conjugados en la segunda persona singular del modo imperativo  .
-Algunas características esenciales de la lengua guaraní están siendo atacadas en la actualidad por desconocimiento del idioma  .
-En esta lengua, generalmente para expresar los tiempos, especialmente los pasados, no existe la necesidad de posponer a la raíz verbal las partículas de tiempo  .
-Empero, se observa en algunos materiales didácticos que docentes formados académicamente agreden esta esencia de la lengua, por contagio del castellano, lengua que sí exige posponer a la raíz verbal las partículas de tiempo  .
-He aquí el siguiente trozo para ilustrar lo afirmado  .
-Como se podrá notar, los verbos ajogua y oguereko (va) no llevan partículas de tiempo  .
-Los deícticos yma y upéramo ubican la narración en tiempo pasado, por ello es redundancia y constituye una agresión reproducir en guaraní las marcas de tiempo, resultado de la influencia del castellano  .
-En guaraní tampoco existe la necesidad de pluralizar las palabras como exige el castellano  .
-Obsérvese esta oración: Ñande mbaꞌapohára ñaikotevẽ ojuehe (Los trabajadores nos necesitamos mutuamente)  .
-Todos estos elementos constitutivos de la lengua serán considerados para el análisis de los términos recopilados, como también en la traducción de los términos tanto del castellano como del inglés  .
-Después de la Independencia patria, el guaraní se redujo a la oralidad y la informalidad; en la vida diaria, sus hablantes lo utilizan muy poco en la escritura para las interacciones sociales; por ello, como ocurre con las lenguas de poca tradición escrita y en relación asimétrica con otros idiomas, varias palabras y partículas sufren de procesos morfosintácticos de corte (síncopa, apócope, aféreris)  .
-Si fuese el caso, se utilizarán túva en vez de túa (padre); amóva, en vez de amóa (aquel, aquella); pérupi, en vez de péipi (por ahí); Che irũ ndive, en vez de Che irũ ndie (con mi compañero); Aju Itakuruvígui, en vez de Aju Itakuruvíi (Vengo de Itacurubí); Noñeñongatúi gueteri, en vez de Noñeñongatúiti” (no se guardó aún); upévare, en vez de upévae (por eso), etc  .
-Así también se conservarán índices de posesión que se están quedando en desuso entre la nueva generación, tales como: ipype, en vez de pype; ichupe, en vez de chupe  .
-Los léxicos y los términos  .
-La lengua guaraní cuenta con suficientes recursos léxicos y terminológicos para ciertos ámbitos de interacción social, especialmente para expresar la vida rural, pero sí tiene serias limitaciones para poner en palabras el mundo moderno, especialmente en los ámbitos estudiados en esta investigación  .
-Si existieran propuestas terminológicas planteadas en traducciones anteriores y que tengan divulgación, como el caso de Vikepetã (Wikipedia) y Aguaratata (Mozilla Firefox), se utilizarán estas propuestas, siempre que las mismas reúnan las condiciones técnicas establecidas en esta guía y en el marco teórico  .
-En estos casos se podrán utilizar préstamos directos, sin adecuar a la estructura fonológica y morfológica del idioma, como por ejemplo Google, informática, software, Facebook, etc  .
-En los casos en que los mismos lleven modificadores, siempre se usarán guiones para unir tanto partículas como posposiciones monosilábicas  .
-Las posposiciones polisilábicas se escribirán conforme a las reglas de la lengua  .
-En los casos de neologismos, en lo posible se usarán los términos que ya cuentan con cierta sanción de uso o los que pueden expresar el concepto sin prestarse a polisemias, siempre que sean consensuados por el equipo de traductores  .
-Muchos neologismos creados por los hablantes o en laboratorios son utilizados normalmente en guaraní, y se podría decir que ya tienen sanción de uso; como ejemplo se puede citar el caso de pumbyry, que es el teléfono  .
-En el sistema educativo, han logrado sanción de uso muchas palabras especializadas del ámbito educativo; como ejemplo se pueden tomar temimboꞌe (alumno/a), mboꞌehára (profesor/a), mboꞌehao (escuela/colegio); tero (sustantivo), aranduka (libro), etc  .
-Asimismo, los traductores podrán recurrir a la creación de neónimos, a partir del léxico común, siempre y cuando que el significante lleve al lector a comprender lo mismo que se diga en la lengua de partida; por ejemplo, eñongatu (archivar), emyatyrõ (editar), eheka (buscar), eroike (introducir), togue mboheko (diseño de página), ejopy (clicar), emombyta (pausar), etc  .
-En las traducciones también, siempre que no afecte la claridad y comprensión, se utilizarán palabras que han quedado en desuso en el guaraní coloquial  .
-Este tipo de vocabulario será utilizado en las traducciones, de manera a colaborar con la recuperación lexical y la elevación del estatus del idioma  .
-También se analizará la incorporación de los términos que actualmente utilizan los hablantes del guaraní para referirse a las herramientas informáticas, por ejemplo  .
-Miembros del Equipo Técnico han escuchado a indígenas, campesinos y docentes utilizar, por ejemplo, karameg̃ua (baúl) para referirse a la computadora y karameg̃uaꞌi (pequeño baúl) para denominar el pendrive  .
-Es interesante el proceso de resemantización que se plantea con estas palabras  .
-Estos términos bien pueden ser incluidos como propuestas y poner a consideración de los hablantes  .
-Los términos a ser traducidos serán puestos a consideración de los usuarios de la lengua a través de la web de la Fundación Yvy Marãeꞌỹ  .
-En ese espacio, los estudiosos de la lengua como los usuarios podrán opinar y plantear nuevas propuestas  .
-La opinión del soberano de la lengua, los usuarios, constituirá un gran aporte  .
-El público  .
-En las traducciones se tendrá en cuenta a los destinatarios, las personas o grupo de personas a los cuales podrían ser destinadas las herramientas a ser traducidas  .
-Antes de iniciar la traducción de los términos y léxicos, los traductores los analizarán desde diversas aristas, y luego los traducirán pensando que los mismos deban ser comprendidos por personas de todas las edades, estratos sociales, gustos y tendencias  .
-Se utilizará un nivel neutro de la lengua, teniendo en cuenta la filosofía que encierra la lengua guaraní, a fin de que todos los usuarios se sientan identificados e invitados a usarlos  .
-En cuanto a los números, existen en guaraní propuestas neológicas desde el cero hasta el infinito; estos números son enseñados en las escuelas, pero los mismos cuentan con poca sanción de uso y la Academia no los ha estudiado aún  .
-Los guaraní utilizaban pocos números en la comunicación cotidiana; el pueblo guaraní parlante utiliza solamente los primeros números de la lengua, y luego pasan al castellano  .
-Si fuese necesario expresar las cantidades por medio de números, se usará en la lengua de llegada hasta el infinito, así como se está enseñando en el sistema educativo  .
-Principios lingüísticos y técnicos  .
-Los términos o unidades terminológicas no soy muy diferentes del léxico común desde el punto de vista formal y semántico  .
-Pero al igual que el léxico, en su elaboración deben ser respetadas las normas gramaticales y textuales  .
-Así también serán consideradas la corrección gramatical y la coherencia textual, es decir, que los mismos estén escritos correctamente y que sean claros y comprensibles; por ello no se recurrirá a creaciones terminológicas antojadizas o a préstamos innecesarios  .
-Se buscará la precisión de los términos, es decir que la dimensión comunicativa sea inalterable, que su significado no dependa del contexto, del discurso en que se usa ni de ningún otro factor que se pueda presentar en el acto comunicativo  .
-Los términos creados deben tener neutralidad emocional, es decir, deben estar libres de connotaciones y componentes afectivos  .
-Otro principio será la naturalidad, vale decir, que los textos sean agradables, respetuosos, comunicativos, tan naturales como si fuera una conversación cotidiana  .
-Para ello se analizarán los términos, su contenido, la situación y las intenciones comunicativas que contienen, el contexto en el cual son emitidos y otros elementos que aportan a su sentido global  .
-Se buscará la sencillez, utilizando palabras comunes que las personas utilizan en la interlocución cotidiana; además se perseguirá la concisión, utilizando frases cortas y fáciles de comprender  .
-Se empleará, además, un lenguaje claro y directo, que no se preste a confusiones o dobles sentidos  .
-Criterios para evaluar los términos traducidos y a traducir  .
-Funcionalidad comunicativa  .
-Corrección lingüística  .
-Neutralidad emocional  .
-Precisión semántica  .
-Estabilidad en el tiempo  .
-Coherencia y cohesión textual  .
-Capacitación de los miembros del Equipo Técnico y los traductores voluntarios:  .
-Los miembros del Equipo Técnico y los traductores voluntarios serán capacitados periódicamente, conforme a un calendario  .
-Los traductores tendrán jornadas de capacitación con informáticos, de manera a que puedan interpretar y conocer las herramientas como también los conceptos a traducir  .
+El guaraní está en un proceso de estandarización y modernización .
+El estadio de desarrollo de la lengua guaraní exige contar con directrices de estilo claras para los profesionales que tendrán a su cargo el análisis de los términos existentes recogidos, como la elaboración de nuevas propuestas terminológicas, de manera a encarar estos trabajos con criterios lingüísticos y técnicos que se ajusten a las normativas generales de la lengua y a la sanción de su uso, como también a las normas técnicas de la ciencia de la traducción terminológica .
+El guaraní es la lengua propia de América más vigorosa .
+Además de Paraguay, es lengua oficial en Bolivia, en la provincia argentina de Corrientes y en el municipio de Takuru, en Mato Grosso do Sul, Brasil .
+Es también idioma del Mercado Común del Sur (Mercosur), y lengua de trabajo en el Parlamento de este bloque de naciones .
+Después de varios siglos de segregación y procesos de estigmatización, hoy esta lengua goza de políticas públicas favorables a su desarrollo y revalorización .
+Criterios a tener en cuenta para la traducción de términos .
+Esta variedad es utilizada por la población no indígena del país, como también por muchos pueblos indígenas, guaraní o no .
+En la traducción que se desarrollará en el marco del proyecto, se utilizará la variedad paraguaya; es decir, el guaraní paraguayo .
+En 2016, la Academia de la Lengua Guaraní (ALG) aprobó las primeras cuatro Reglas Ortográficas de la Lengua Guaraní, de manera a que se pueda escribir correctamente y de modo uniforme en este idioma .
+La primera regla aprueba el Alfabeto Oficial .
+En la misma, la Academia oficializa el alfabeto de 33 fonemas propios que se representan por medio de 33 grafemas o letras que son: A a, Ã ã, Ch ch, E e, Ẽ ẽ, G g, G̃ g̃ , H h, I i, Ĩ ĩ, J j, K k, L l, M m, Mb mb, N n, Nd nd, Ng ng, Nt nt, Ñ ñ, O o, Õ õ, P p, R r, Rr rr, S s, T t, U u, Ũ ũ, V v, Y y, Ỹ ỹ, ‘ (Puso) .
+La segunda regla aborda el uso de la tilde acentual, es decir, la manera correcta de acentuar ortográficamente las palabras guaraní .
+La tercera regla rige la formación de las sílabas nasales; la cuarta, la formación de palabras en esta lengua .
+En la lengua guaraní, se presentan dos fenómenos muy recurrentes denominados armonización nasal y armonización vocálica .
+La nasal se presenta en un contexto de nasalidad, y puede ser regresiva o progresiva; la oral se presenta en un contexto oral .
+En Ne akã mbytépe, adjetivo posesivo ne (en vez de nde) representa una armonización regresiva, y mbytépe (en vez de pytépe), una armonización progresiva .
+En la expresión Mbaꞌépa rejaporeína, la partícula re, que representa la segunda persona de singular, por armonización, se duplica como partícula de aspecto continuo .
+Este tipo de atajos afecta la esencia de la lengua .
+La lengua guaraní, en su construcción morfosintáctica y en la expresión de las intenciones del hablante, cuenta con recursos lingüísticos muy diferentes a los de las lenguas europeas .
+Ella es una lengua eminentemente verbal; cuenta con más de 30 modos verbales, expresados a través de decenas de partículas que expresan las diferentes fuerzas ilocutivas .
+No tiene artículos, tampoco posee géneros gramaticales .
+Las palabras referidas a personas sí cuentan con géneros, plasmados a través de léxicos que expresan el masculino y el femenino .
+En cuanto a la construcción sintáctica, en esta lengua, el poseedor precede a la cosa poseída; en castellano, en cambio, la cosa poseída precede al poseedor .
+En vez de preposiciones cuenta con posposiciones .
+Gua es una posposición, y va pospuesta a Paraguái; por ser monosilábica, va unida a este .
+El guaraní es una lengua polisintética y aglutinante, por ello forma palabras uniendo partículas al lexema base .
+Las partículas tanto prefijas como sufijas que modifican al lexema van unidas a él .
+Construcción textual .
+En los largos años de contacto, las dos lenguas oficiales y mayoritarias del Paraguay, el guaraní y el castellano, se han imbricado e interferido mutuamente, tanto en el aspecto morfosintáctico como en los recursos para expresar la fuerza ilocutiva .
+En las traducciones del castellano al guaraní es frecuente la transferencia de la estructura de la lengua de partida, a través de calcos sintácticos .
+Es muy corriente encontrar textos en guaraní con escasa o nula presencia de préstamos léxicos, pero con graves calcos sintácticos del castellano .
+Las oraciones presentadas a continuación, por ejemplo, están expresadas con palabras en guaraní, pero en sintaxis castellana: Che haꞌe Ignacio, en vez de Che Ignacio, Cheréra Ignacio (Soy Ignacio); Areko peteĩ apañuãi, en vez de Cheapañuãi (Tengo un problema); Oguereko mokõi óga, en vez de Hogamokõi (Tiene dos casas) .
+La transgresión de las normas sintácticas y pragmáticas afecta negativamente a una lengua .
+Los calcos sintácticos agreden la estructura discursiva del idioma, dado que ataca directamente su esencia .
+En las traducciones se cuidará esta naturaleza de la lengua, de manera a respetar el genio del idioma, que el mismo fluya por sus canales naturales correspondientes, así como borbota de la boca de sus hablantes nativos .
+Uso de los verbos .
+Expresiones como: Tengo una computadora nueva, se traducirá: Chekomputadóra pyahu, en vez de Areko peteĩ komputadóra pyahu; Me duele la cabeza, Cheakãrasy, en vez de Hasy chéve che akã .
+Por medio de verbos como: Entrar, pulsar, escribir, introducir, publicar, rechazar, se invita al usuario a navegar .
+En castellano, estos verbos se presentan en infinitivo, y es la forma correcta para expresar invitación u orden .
+En el trabajo, estos verbos se expresarán conjugados en la segunda persona singular del modo imperativo .
+Algunas características esenciales de la lengua guaraní están siendo atacadas en la actualidad por desconocimiento del idioma .
+En esta lengua, generalmente para expresar los tiempos, especialmente los pasados, no existe la necesidad de posponer a la raíz verbal las partículas de tiempo .
+Empero, se observa en algunos materiales didácticos que docentes formados académicamente agreden esta esencia de la lengua, por contagio del castellano, lengua que sí exige posponer a la raíz verbal las partículas de tiempo .
+He aquí el siguiente trozo para ilustrar lo afirmado .
+Como se podrá notar, los verbos ajogua y oguereko (va) no llevan partículas de tiempo .
+Los deícticos yma y upéramo ubican la narración en tiempo pasado, por ello es redundancia y constituye una agresión reproducir en guaraní las marcas de tiempo, resultado de la influencia del castellano .
+En guaraní tampoco existe la necesidad de pluralizar las palabras como exige el castellano .
+Obsérvese esta oración: Ñande mbaꞌapohára ñaikotevẽ ojuehe (Los trabajadores nos necesitamos mutuamente) .
+Todos estos elementos constitutivos de la lengua serán considerados para el análisis de los términos recopilados, como también en la traducción de los términos tanto del castellano como del inglés .
+Después de la Independencia patria, el guaraní se redujo a la oralidad y la informalidad; en la vida diaria, sus hablantes lo utilizan muy poco en la escritura para las interacciones sociales; por ello, como ocurre con las lenguas de poca tradición escrita y en relación asimétrica con otros idiomas, varias palabras y partículas sufren de procesos morfosintácticos de corte (síncopa, apócope, aféreris) .
+Si fuese el caso, se utilizarán túva en vez de túa (padre); amóva, en vez de amóa (aquel, aquella); pérupi, en vez de péipi (por ahí); Che irũ ndive, en vez de Che irũ ndie (con mi compañero); Aju Itakuruvígui, en vez de Aju Itakuruvíi (Vengo de Itacurubí); Noñeñongatúi gueteri, en vez de Noñeñongatúiti” (no se guardó aún); upévare, en vez de upévae (por eso), etc .
+Así también se conservarán índices de posesión que se están quedando en desuso entre la nueva generación, tales como: ipype, en vez de pype; ichupe, en vez de chupe .
+Los léxicos y los términos .
+La lengua guaraní cuenta con suficientes recursos léxicos y terminológicos para ciertos ámbitos de interacción social, especialmente para expresar la vida rural, pero sí tiene serias limitaciones para poner en palabras el mundo moderno, especialmente en los ámbitos estudiados en esta investigación .
+Si existieran propuestas terminológicas planteadas en traducciones anteriores y que tengan divulgación, como el caso de Vikepetã (Wikipedia) y Aguaratata (Mozilla Firefox), se utilizarán estas propuestas, siempre que las mismas reúnan las condiciones técnicas establecidas en esta guía y en el marco teórico .
+En estos casos se podrán utilizar préstamos directos, sin adecuar a la estructura fonológica y morfológica del idioma, como por ejemplo Google, informática, software, Facebook, etc .
+En los casos en que los mismos lleven modificadores, siempre se usarán guiones para unir tanto partículas como posposiciones monosilábicas .
+Las posposiciones polisilábicas se escribirán conforme a las reglas de la lengua .
+En los casos de neologismos, en lo posible se usarán los términos que ya cuentan con cierta sanción de uso o los que pueden expresar el concepto sin prestarse a polisemias, siempre que sean consensuados por el equipo de traductores .
+Muchos neologismos creados por los hablantes o en laboratorios son utilizados normalmente en guaraní, y se podría decir que ya tienen sanción de uso; como ejemplo se puede citar el caso de pumbyry, que es el teléfono .
+En el sistema educativo, han logrado sanción de uso muchas palabras especializadas del ámbito educativo; como ejemplo se pueden tomar temimboꞌe (alumno/a), mboꞌehára (profesor/a), mboꞌehao (escuela/colegio); tero (sustantivo), aranduka (libro), etc .
+Asimismo, los traductores podrán recurrir a la creación de neónimos, a partir del léxico común, siempre y cuando que el significante lleve al lector a comprender lo mismo que se diga en la lengua de partida; por ejemplo, eñongatu (archivar), emyatyrõ (editar), eheka (buscar), eroike (introducir), togue mboheko (diseño de página), ejopy (clicar), emombyta (pausar), etc .
+En las traducciones también, siempre que no afecte la claridad y comprensión, se utilizarán palabras que han quedado en desuso en el guaraní coloquial .
+Este tipo de vocabulario será utilizado en las traducciones, de manera a colaborar con la recuperación lexical y la elevación del estatus del idioma .
+También se analizará la incorporación de los términos que actualmente utilizan los hablantes del guaraní para referirse a las herramientas informáticas, por ejemplo .
+Miembros del Equipo Técnico han escuchado a indígenas, campesinos y docentes utilizar, por ejemplo, karameg̃ua (baúl) para referirse a la computadora y karameg̃uaꞌi (pequeño baúl) para denominar el pendrive .
+Es interesante el proceso de resemantización que se plantea con estas palabras .
+Estos términos bien pueden ser incluidos como propuestas y poner a consideración de los hablantes .
+Los términos a ser traducidos serán puestos a consideración de los usuarios de la lengua a través de la web de la Fundación Yvy Marãeꞌỹ .
+En ese espacio, los estudiosos de la lengua como los usuarios podrán opinar y plantear nuevas propuestas .
+La opinión del soberano de la lengua, los usuarios, constituirá un gran aporte .
+El público .
+En las traducciones se tendrá en cuenta a los destinatarios, las personas o grupo de personas a los cuales podrían ser destinadas las herramientas a ser traducidas .
+Antes de iniciar la traducción de los términos y léxicos, los traductores los analizarán desde diversas aristas, y luego los traducirán pensando que los mismos deban ser comprendidos por personas de todas las edades, estratos sociales, gustos y tendencias .
+Se utilizará un nivel neutro de la lengua, teniendo en cuenta la filosofía que encierra la lengua guaraní, a fin de que todos los usuarios se sientan identificados e invitados a usarlos .
+En cuanto a los números, existen en guaraní propuestas neológicas desde el cero hasta el infinito; estos números son enseñados en las escuelas, pero los mismos cuentan con poca sanción de uso y la Academia no los ha estudiado aún .
+Los guaraní utilizaban pocos números en la comunicación cotidiana; el pueblo guaraní parlante utiliza solamente los primeros números de la lengua, y luego pasan al castellano .
+Si fuese necesario expresar las cantidades por medio de números, se usará en la lengua de llegada hasta el infinito, así como se está enseñando en el sistema educativo .
+Principios lingüísticos y técnicos .
+Los términos o unidades terminológicas no soy muy diferentes del léxico común desde el punto de vista formal y semántico .
+Pero al igual que el léxico, en su elaboración deben ser respetadas las normas gramaticales y textuales .
+Así también serán consideradas la corrección gramatical y la coherencia textual, es decir, que los mismos estén escritos correctamente y que sean claros y comprensibles; por ello no se recurrirá a creaciones terminológicas antojadizas o a préstamos innecesarios .
+Se buscará la precisión de los términos, es decir que la dimensión comunicativa sea inalterable, que su significado no dependa del contexto, del discurso en que se usa ni de ningún otro factor que se pueda presentar en el acto comunicativo .
+Los términos creados deben tener neutralidad emocional, es decir, deben estar libres de connotaciones y componentes afectivos .
+Otro principio será la naturalidad, vale decir, que los textos sean agradables, respetuosos, comunicativos, tan naturales como si fuera una conversación cotidiana .
+Para ello se analizarán los términos, su contenido, la situación y las intenciones comunicativas que contienen, el contexto en el cual son emitidos y otros elementos que aportan a su sentido global .
+Se buscará la sencillez, utilizando palabras comunes que las personas utilizan en la interlocución cotidiana; además se perseguirá la concisión, utilizando frases cortas y fáciles de comprender .
+Se empleará, además, un lenguaje claro y directo, que no se preste a confusiones o dobles sentidos .
+Criterios para evaluar los términos traducidos y a traducir .
+Funcionalidad comunicativa .
+Corrección lingüística .
+Neutralidad emocional .
+Precisión semántica .
+Estabilidad en el tiempo .
+Coherencia y cohesión textual .
+Capacitación de los miembros del Equipo Técnico y los traductores voluntarios: .
+Los miembros del Equipo Técnico y los traductores voluntarios serán capacitados periódicamente, conforme a un calendario .
+Los traductores tendrán jornadas de capacitación con informáticos, de manera a que puedan interpretar y conocer las herramientas como también los conceptos a traducir .
 introduccion
-Abrir  archivo
+Abrir archivo
 Abrir en una nueva ventana privada
 Abrir enlace
 Abrir enlace en una nueva ventana privada
@@ -14736,7 +14736,7 @@ Popular
 Total de video encontrado: %1
 Total de videos encontrados: %1
 Mi video perfil
-Establecer como  video perfil
+Establecer como video perfil
 Este tipo de archivo de video no es soportado: %1
 error de video
 Aplicar a todos los videos
@@ -15093,7 +15093,7 @@ Esta foto ahora es la foto predeterminada del álbum
 Estás seguro que quieres eliminar el álbum. Esto también removerá las fotos dentro del album
 Id de foto no válida
 Id de álbum no válido o este álbum no te pertenece
-Álbum  eliminado
+Álbum eliminado
 Disculpa, pero no tienes permitido ver esta página
 Este sitio no posee ninguna aplicación instalada aún
 Reportar esto
@@ -15155,7 +15155,7 @@ Igual a (*)
 Mayor o igual a
 El plugin flash es necesario para subir fotos
 Al asociar con su cuenta de facebook con el componente JomSocial, ya no es necesario para acceder al sitio utilizando el módulo de acceso de miembros.
-Todo lo que necesitas hacer es hacer clic en el icono / imagen  y automáticamente iniciaras sesión con nostros
+Todo lo que necesitas hacer es hacer clic en el icono / imagen y automáticamente iniciaras sesión con nostros
 Amigos mutuos
 Cuenta de usuario bloqueada
 Cuenta de usuario desbloqueada
@@ -15194,7 +15194,7 @@ El usuario ha sido eliminado de la lista de destacados
 Álbum de fotos eliminado de la lista de destacados
 Más
 Por favor, introduzca su dirección de correo aquí para que podamos enviarle a usted el enlace de activación
-Dirección email  no encontrada en el sistema.
+Dirección email no encontrada en el sistema.
 Por favor, complete la activación de su cuenta haciendo clic en el enlace de su correo electrónico
 Usted ha pedido que nosotros volvamos a enviar el enlace de activación para activar su cuenta.
 Para activar la cuenta, haga click en el siguiente enlace o copie y pegue en su navegador.
@@ -15909,7 +15909,7 @@ La gran mayoría de los idiomas quedaron sin sistemas de escritura, exagerando l
 En otras palabras, después de la segunda y la tercera revolución del conocimiento persistían brechas significantes
 • Entre los educados y los no educados en regiones con lenguas escritas
 • Entre hablantes de lenguas escritas y no escritas
-• Entre los que se les permitía el costo de imprimir y publicar documentos y los que no se les permitía  .
+• Entre los que se les permitía el costo de imprimir y publicar documentos y los que no se les permitía .
 A pesar de estos procesos antidemocráticos continuos, en la mayor parte del mundo, sociedades siguieron creando y compartiendo sus conocimientos, legándolos oralmente de generación en generación .
 Lejos de extinguirse, el conocimiento tradicional sobrevivió y se desarrolló en todos continentes, por lo menos hasta su encuentro con los colonizadores europeos .
 Un revés: la colonización del Sur Global .
@@ -15995,7 +15995,7 @@ Tenemos la posibilidad de enseñar a imaginar, a crear, a formar pensamientos am
 LA LENGUA GUARANÍ Y LA TRADUCCIÓN EN LAS DIFERENTES APLICACIONES DE INTERNET .
 En la República del Paraguay, existen una variedad de lenguas, entre las que se encuentran como oficiales el guaraní y el castellano .
 El guaraní, primeramente, fue declarado como lengua nacional en la Constitución Nacional de 1967, siendo un gran avance, ya que históricamente fue relegado en casi todos los ámbitos de uso .
-En total, aparte de las dos lenguas oficiales, existen diecinueve pueblos indígenas autóctonos con sus respectivas lenguas agrupadas en cinco familias lingüísticas (Susnik, B., 1981.  Los aborígenes del Paraguay), más una diversidad de lenguas de inmigrantes extranjeros que a lo largo de la historia del país han venido asentándose en este suelo guaraní .
+En total, aparte de las dos lenguas oficiales, existen diecinueve pueblos indígenas autóctonos con sus respectivas lenguas agrupadas en cinco familias lingüísticas (Susnik, B., 1981. Los aborígenes del Paraguay), más una diversidad de lenguas de inmigrantes extranjeros que a lo largo de la historia del país han venido asentándose en este suelo guaraní .
 De esta diversidad lingüística que se menciona dentro de la realidad paraguaya, se debe destacar que la lengua guaraní, a pesar de su origen, ha sido adoptada como la lengua de comunicación diaria y coloquial de la mayoría de los paraguayos .
 Si bien en la actualidad el Estado paraguayo reconoce a la lengua guaraní con el estatus de lengua oficial, juntamente con el castellano, a partir de la Constitución Nacional de 1992 no se ha registrado hasta la fecha que la administración estatal funcione en las dos lenguas de manera equitativa, como para satisfacer la necesidad y el derecho de la mayoría de los habitantes del país .
 Se puede decir que los avances en materia legal están a la vanguardia, no solo a nivel local, sino también regional, empero la realidad sigue siendo la misma, el progresivo fortalecimiento del castellano en los medios de comunicación en detrimento del guaraní, a pesar de lo ya mencionado, que la mayor cantidad de habitantes del país son hablantes de la lengua guaraní .
@@ -16182,11 +16182,11 @@ La Agenda 2030 plantea desafíos tan abarcadores, que son llamados a participar 
 1 La Educación desde la Organización de las Naciones Unidas .
 1 Organización de las Naciones Unidas para la Educación, la Ciencia y la Cultura (UNESCO) .
 La UNESCO (en sus propias palabras) fue creada en 1945 para responder a la firme idea de las naciones de que los acuerdos políticos y económicos no son suficientes para construir una paz duradera .
-Está compuesto por organizaciones con trayectoria en Desarrollo Sostenible desde una perspectiva regional  .
-A su vez, busca canalizar iniciativas innovadoras y ambiciosas en alianza con otras organizaciones de la región, tanto públicas como privadas, para traccionar la Sostenibilidad dentro del territorio de la Cuenca y zona de influencia  .
-2 Áreas de trabajo del RCE Cuenca del Plata  .
-El trabajo del RCE Cuenca del Plata se organiza con base en cuatro áreas de acción: Gestión: Generar articulaciones institucionales, coordinar la sinergia entre programas y proyectos, monitorear y reportar impactos, y gestionar recursos, entre otros  .
-Investigación: Observatorios, para generación de información cualicuantitativa sobre el cumplimiento de la Agenda 2030 en la Cuenca y zona de influencia  .
+Está compuesto por organizaciones con trayectoria en Desarrollo Sostenible desde una perspectiva regional .
+A su vez, busca canalizar iniciativas innovadoras y ambiciosas en alianza con otras organizaciones de la región, tanto públicas como privadas, para traccionar la Sostenibilidad dentro del territorio de la Cuenca y zona de influencia .
+2 Áreas de trabajo del RCE Cuenca del Plata .
+El trabajo del RCE Cuenca del Plata se organiza con base en cuatro áreas de acción: Gestión: Generar articulaciones institucionales, coordinar la sinergia entre programas y proyectos, monitorear y reportar impactos, y gestionar recursos, entre otros .
+Investigación: Observatorios, para generación de información cualicuantitativa sobre el cumplimiento de la Agenda 2030 en la Cuenca y zona de influencia .
 Capacitación: Generación de conocimientos y habilidades orientadas al logro de los ODS .
 Extensión: Proyectos territoriales y colectivos que contribuyan a la sensibilización, concientización y transformación de las comunidades hacia la sostenibilidad .
 3 La Agenda 2030 y la Educación para el Desarrollos Sostenible (EDS) .
@@ -16419,150 +16419,150 @@ Visitar www.wordfast.com .
 Es un software de código abierto, lo que significa que, si se desea, se puede modificar OmegaT para ajustarlo a las propias necesidades .
 Para los defensores del software de código abierto, esta libertad es incluso más importante que el hecho de no tener que pagar nada .
 Información: www.omegat.org.
-¿Para qué?  .
-Antes de apresurarse a elegir una herramienta de traducción asistida, es necesario considerar para qué se quiere usarla  .
-En primer lugar: si bien una herramienta TAC permite un aumento en la productividad, quien sea un traductor primerizo no va a tener ninguna ventaja en particular con su uso  .
-En segundo lugar: la estructura de los textos originales importa mucho  .
+¿Para qué? .
+Antes de apresurarse a elegir una herramienta de traducción asistida, es necesario considerar para qué se quiere usarla .
+En primer lugar: si bien una herramienta TAC permite un aumento en la productividad, quien sea un traductor primerizo no va a tener ninguna ventaja en particular con su uso .
+En segundo lugar: la estructura de los textos originales importa mucho .
 Aquellos textos estandarizados por naturaleza, como manuales o contratos, son ideales y más aún si el traductor procesa varios trabajos similares .
-Pero las herramientas TAC no son tan buenas si se trata de traducir poesía u otros textos muy heterogéneos, cargados de connotaciones y polisemia  .
+Pero las herramientas TAC no son tan buenas si se trata de traducir poesía u otros textos muy heterogéneos, cargados de connotaciones y polisemia .
 Hechas estas apreciaciones, pasaremos ahora sí a comentar más en detalle las herramientas TAC .
 - generación de memorias de traducción (MT) .
 - alineación de textos a partir de traducciones preexistentes .
 - gestores de terminología .
-Las memorias de traducción son archivos muy específicos de estos programas, prácticamente el alma de la traducción asistida, en donde se van almacenando las unidades de traducción  .
+Las memorias de traducción son archivos muy específicos de estos programas, prácticamente el alma de la traducción asistida, en donde se van almacenando las unidades de traducción .
 ¿Qué es una unidad de traducción?
 Una unidad informática creada por un usuario humano, compuesta por un segmento (usualmente, una frase) en la lengua fuente y su correspondiente segmento traducido a la lengua meta, y almacenada dentro de la memoria de traducción .
-Es posible utilizar una misma memoria de traducción para varios proyectos, o crear una nueva para cada nuevo proyecto  .
-La alineación de textos es de gran ayuda cuando se cuenta con material previamente traducido  .
-Previamente se debe de asegurar la óptima calidad de la traducción, así como de la transcripción en formato digital (habitualmente en Word), y a continuación se utiliza la función Alinear (en inglés, Align) para terminar obteniendo un archivo exportable a una memoria de traducción  .
-Por su parte, la gestión de terminología es otra área significativa de las herramientas TAC  .
-Cada traductor puede ir desarrollando su propio glosario personalizado, en ocasiones incluyendo hasta dialectos de la lengua meta, categorías gramaticales, etc  .
-Esta función es importante para ayudar a mantener la coherencia en las traducciones, así como para realizar correcciones y revisiones  .
-En particular: el programa WordFast incluye la opción llamada Lista negra (en inglés, Blacklist) con palabras que no deben ser utilizadas  .
-¿Cómo trabajo?   .
-Para trabajar con una herramienta TAC, se recomienda tener un orden estricto en el almacenamiento de los archivos, para después facilitar la labor a mediano y largo plazo (porque no se debe de olvidar que, a mayor similitud de proyectos, mejora la productividad)  .
-A modo de ejemplo: dentro de la carpeta “Cliente A” se crea una carpeta llamada “Tema Contratos”  .
-Se recibe un archivo para traducir, por ejemplo, ContratoMYZ  .
+Es posible utilizar una misma memoria de traducción para varios proyectos, o crear una nueva para cada nuevo proyecto .
+La alineación de textos es de gran ayuda cuando se cuenta con material previamente traducido .
+Previamente se debe de asegurar la óptima calidad de la traducción, así como de la transcripción en formato digital (habitualmente en Word), y a continuación se utiliza la función Alinear (en inglés, Align) para terminar obteniendo un archivo exportable a una memoria de traducción .
+Por su parte, la gestión de terminología es otra área significativa de las herramientas TAC .
+Cada traductor puede ir desarrollando su propio glosario personalizado, en ocasiones incluyendo hasta dialectos de la lengua meta, categorías gramaticales, etc .
+Esta función es importante para ayudar a mantener la coherencia en las traducciones, así como para realizar correcciones y revisiones .
+En particular: el programa WordFast incluye la opción llamada Lista negra (en inglés, Blacklist) con palabras que no deben ser utilizadas .
+¿Cómo trabajo? .
+Para trabajar con una herramienta TAC, se recomienda tener un orden estricto en el almacenamiento de los archivos, para después facilitar la labor a mediano y largo plazo (porque no se debe de olvidar que, a mayor similitud de proyectos, mejora la productividad) .
+A modo de ejemplo: dentro de la carpeta “Cliente A” se crea una carpeta llamada “Tema Contratos” .
+Se recibe un archivo para traducir, por ejemplo, ContratoMYZ .
 doc, entonces dentro de la carpeta “Tema Contratos” se crea una carpeta llamada “ContratoMYZ” y a su vez dentro de esta otra más llamada “Archivos recibidos”, allí se guarda el archivo del cliente para que despues pueda ser copiado nuevamente a otra carpeta
-A continuación, se abre la herramienta TAC; se crea un proyecto nuevo, por ejemplo, ProyectoMYZ, que se guarda dentro de a carpeta “ContratoMYZ”; se definen los idiomas fuente y meta; se elige si se utilizará una memoria de traducción preexistente o si se comenzará desde cero con una memoria nueva (en cuyo caso, es preferible que la misma tenga por ubicación también la carpeta “ContratoMYZ”)  .
-Cuando está creado ese proyecto, se pasa a la llamada vista de edición, una pantalla en donde se apreciarán dos grandes columnas: a la izquierda están los segmentos del texto fuente y, a la derecha, irán apareciendo los segmentos traducidos a medida que el usuario procese la traducción  .
-Otras columnas más angostas sirven de ayuda para visualizar los detalles del proceso traductivo  .
-Cada vez que se termina de escribir un segmento en la lengua meta, se debe de confirmar el segmento, y en ese acto se está guardando la unidad de traducción en la memoria de traducción  .
-Al pasar al siguiente segmento se procede de manera similar  .
-Ahora bien, si se encuentra un segmento que sea 100% idéntico a uno ya traducido, el programa trae a la pantalla la traducción almacenada en la memoria; y si se trata de un segmento parcialmente igual (por ejemplo, un 90% igual) aparece lo que está guardado, con la salvedad de que el usuario deberá modificar la(s) palabra(s) que no sea(n) igual(es)  .
-Una vez hecho este paso, se confirma el nuevo segmento, y así sucesivamente  .
-Cuando se ha finalizado el proceso traductivo, se realiza una corrección del texto, para ello se pueden aprovechar las funciones correspondientes del menú de la herramienta TAC  .
-Finalmente, se graba el archivo “como traducido”, es decir en la lengua meta  .
-Así las cosas, en la correspondiente subcarpeta de la carpeta “ContratoMYZ” aparecerá el archivo traducido  .
-Si se abre el archivo que nos envió el cliente y lo comparamos con el traducido, se aprecia que tienen los dos el mismo formato, tipo de letra, etc  .
-Solo se diferencian en el idioma de traducción  .
-Con lo que se ve otra gran ventaja de las herramientas TAC: también ahorran tiempo con muchos formatos  .
-Las memorias de traducción y después   .
-Es importante hacer un mantenimiento de las memorias de traducción, que constituyen el verdadero tesoro del usuario-profesional  .
-Interesa saber que una memoria de traducción encierra un enorme valor como propiedad intelectual, y no se debe de compartir indiscriminadamente  .
-Al respecto, cabe comentar que las memorias de traducción compartidas son uno de los grandes temas de debate en la informática traductoril moderna, si bien entrar en esto excede los propósitos de esta ponencia  .
-Si yo soy traductor profesional y generé mi memoria de traducción en la que acumulo varios trabajos, es mía; es mi trabajo, vale mucho dinero, y no la voy a compartir  .
+A continuación, se abre la herramienta TAC; se crea un proyecto nuevo, por ejemplo, ProyectoMYZ, que se guarda dentro de a carpeta “ContratoMYZ”; se definen los idiomas fuente y meta; se elige si se utilizará una memoria de traducción preexistente o si se comenzará desde cero con una memoria nueva (en cuyo caso, es preferible que la misma tenga por ubicación también la carpeta “ContratoMYZ”) .
+Cuando está creado ese proyecto, se pasa a la llamada vista de edición, una pantalla en donde se apreciarán dos grandes columnas: a la izquierda están los segmentos del texto fuente y, a la derecha, irán apareciendo los segmentos traducidos a medida que el usuario procese la traducción .
+Otras columnas más angostas sirven de ayuda para visualizar los detalles del proceso traductivo .
+Cada vez que se termina de escribir un segmento en la lengua meta, se debe de confirmar el segmento, y en ese acto se está guardando la unidad de traducción en la memoria de traducción .
+Al pasar al siguiente segmento se procede de manera similar .
+Ahora bien, si se encuentra un segmento que sea 100% idéntico a uno ya traducido, el programa trae a la pantalla la traducción almacenada en la memoria; y si se trata de un segmento parcialmente igual (por ejemplo, un 90% igual) aparece lo que está guardado, con la salvedad de que el usuario deberá modificar la(s) palabra(s) que no sea(n) igual(es) .
+Una vez hecho este paso, se confirma el nuevo segmento, y así sucesivamente .
+Cuando se ha finalizado el proceso traductivo, se realiza una corrección del texto, para ello se pueden aprovechar las funciones correspondientes del menú de la herramienta TAC .
+Finalmente, se graba el archivo “como traducido”, es decir en la lengua meta .
+Así las cosas, en la correspondiente subcarpeta de la carpeta “ContratoMYZ” aparecerá el archivo traducido .
+Si se abre el archivo que nos envió el cliente y lo comparamos con el traducido, se aprecia que tienen los dos el mismo formato, tipo de letra, etc .
+Solo se diferencian en el idioma de traducción .
+Con lo que se ve otra gran ventaja de las herramientas TAC: también ahorran tiempo con muchos formatos .
+Las memorias de traducción y después .
+Es importante hacer un mantenimiento de las memorias de traducción, que constituyen el verdadero tesoro del usuario-profesional .
+Interesa saber que una memoria de traducción encierra un enorme valor como propiedad intelectual, y no se debe de compartir indiscriminadamente .
+Al respecto, cabe comentar que las memorias de traducción compartidas son uno de los grandes temas de debate en la informática traductoril moderna, si bien entrar en esto excede los propósitos de esta ponencia .
+Si yo soy traductor profesional y generé mi memoria de traducción en la que acumulo varios trabajos, es mía; es mi trabajo, vale mucho dinero, y no la voy a compartir .
 MAINUMBY: UN AYUDANTE PARA LA TRADUCCIÓN CASTELLANO- GUARANÍ .
-Introducción   .
-Las computadoras y una amplia gama de aplicaciones juegan un papel importante en el trabajo cotidiano del traductor moderno  .
-Sin embargo, las herramientas computacionales diseñadas para ayudar en el proceso de traducción benefician solamente la traducción desde o hacia una pequeña minoría de los 7  .
-000 idiomas del mundo, los que podemos llamar “idiomas privilegiados”: el inglés, el castellano, el alemán, el chino, el árabe, etc  .
-En cuanto a los traductores que trabajan con los demás idiomas, los que quedan minorizados en el mundo digital, no se pueden aprovechar de las herramientas que están acelerando la producción de traducciones en los idiomas privilegiados  .
-Cabe preguntar si es posible colmar la brecha entre lo que está disponible para esos idiomas y para los minorizados  .
-Esta ponencia propone un marco para la traducción asistida por computadora hacia idiomas minorizados, y su implementación en una aplicación para la traducción castellano-guaraní  .
-Primero, se resumen las herramientas computacionales existentes para la traducción y el recurso principal del que dependen: los corpus bilingües  .
-Segundo, se considera lo que es posible sin un corpus adecuado, y se presenta un marco para la traducción asistida por computadora basada en reglas en vez de un corpus  .
-Finalmente, se describe Mainumby, una implementación en desarrollo de este marco para la traducción del castellano al guaraní  .
-Herramientas y recursos computacionales para la traducción   .
-Corpus multilingües y memorias de traducción   .
-El recurso más importante para el uso de la tecnología en la traducción es un corpus multilingüe, que consiste en documentos en dos o más lenguas  .
-Como el sistema que usa el corpus debe buscar coincidencias en el corpus con una oración fuente arbitraria, cuanto más amplio sea el corpus, más útil será  .
+Introducción .
+Las computadoras y una amplia gama de aplicaciones juegan un papel importante en el trabajo cotidiano del traductor moderno .
+Sin embargo, las herramientas computacionales diseñadas para ayudar en el proceso de traducción benefician solamente la traducción desde o hacia una pequeña minoría de los 7 .
+000 idiomas del mundo, los que podemos llamar “idiomas privilegiados”: el inglés, el castellano, el alemán, el chino, el árabe, etc .
+En cuanto a los traductores que trabajan con los demás idiomas, los que quedan minorizados en el mundo digital, no se pueden aprovechar de las herramientas que están acelerando la producción de traducciones en los idiomas privilegiados .
+Cabe preguntar si es posible colmar la brecha entre lo que está disponible para esos idiomas y para los minorizados .
+Esta ponencia propone un marco para la traducción asistida por computadora hacia idiomas minorizados, y su implementación en una aplicación para la traducción castellano-guaraní .
+Primero, se resumen las herramientas computacionales existentes para la traducción y el recurso principal del que dependen: los corpus bilingües .
+Segundo, se considera lo que es posible sin un corpus adecuado, y se presenta un marco para la traducción asistida por computadora basada en reglas en vez de un corpus .
+Finalmente, se describe Mainumby, una implementación en desarrollo de este marco para la traducción del castellano al guaraní .
+Herramientas y recursos computacionales para la traducción .
+Corpus multilingües y memorias de traducción .
+El recurso más importante para el uso de la tecnología en la traducción es un corpus multilingüe, que consiste en documentos en dos o más lenguas .
+Como el sistema que usa el corpus debe buscar coincidencias en el corpus con una oración fuente arbitraria, cuanto más amplio sea el corpus, más útil será .
 Corpus bilingües amplios están dispuestos para los idiomas privilegiados en el mundo digital, como el castellano, el inglés, y el chino, pero no para idiomas minorizados como el guaraní .
-Para ser utilizable, un corpus bilingüe se convierte en una memoria de traducción  .
-Se limpia y después se alinean las oraciones de los documentos en el corpus  .
-Esdecir, cada unidad o segmento en la memoria de traducción que resulta consiste enoraciones que son traducciones el uno del otro  .
-Las memorias de traducción se aplican en dos tipos de sistemas, los de la traducciónasistida por computadora y los de la traducción automática  .
-Un ejemplo de una memoria de traducción en el dominio de la medicina es unarecopilada por el Centro Europeo para la Prevención y el Control de las Enfermedades  .
+Para ser utilizable, un corpus bilingüe se convierte en una memoria de traducción .
+Se limpia y después se alinean las oraciones de los documentos en el corpus .
+Esdecir, cada unidad o segmento en la memoria de traducción que resulta consiste enoraciones que son traducciones el uno del otro .
+Las memorias de traducción se aplican en dos tipos de sistemas, los de la traducciónasistida por computadora y los de la traducción automática .
+Un ejemplo de una memoria de traducción en el dominio de la medicina es unarecopilada por el Centro Europeo para la Prevención y el Control de las Enfermedades .
 Consiste en aproximadamente 3.000 oraciones
-De manera general, la traducción asistida por computadora (TAC) consiste en aplicaciones basadas en memorias de traducción para ayudar a traductores en su trabajo  .
-El usuario de un sistema TAC normalmente elige las memorias que se incluyen en la aplicación en el tiempo de traducción, a menudo restringidas a memorias con traducciones hechas por traductores fiables y tratando el dominio del texto fuente  .
-Para ilustración, veamos el rendimiento de OmegaT (Smolej, 2016), una aplicación TAC gratuita y de código abierto  .
-En este ejemplo, se ha cargado la memoria de traducción del CEPCE descrita arriba  .
-El documento para traducir consiste en cuatro oraciones que se parecen en diferentes grados a las oraciones en el corpus mismo (es decir, en la memoria de traducción)  .
-En la Figura 2, se muestra la interfaz de OmegaT y su rendimiento cuando se ha seleccionado la tercera oración fuente en el documento, la que se parece a la oración en la Figura 1  .
-La aplicación muestra en su ventana de coincidencias las oraciones en la memoria de traducción cargada que coinciden mejor a la oración fuente  .
-Como la coincidencia en este caso no es perfecta, el usuario debe descubrir cuáles son los segmentos de la traducción inglesa que puede mantener en su traducción y cuáles son los que debe reemplazar  .
-A medida que el traductor usa una aplicación TAC, el sistema almacena sus traducciones en una memoria de traducción que se puede guardar de manera separada o integrar en una memoria existente  .
-Cuando el traductor traduzca un documento parecido, se beneficia de esta memoria de traducción guardada  .
-La traducción automática  .
-Otra aplicación de las memorias de traducción (aunque normalmente no se llaman “memorias de traducción” en este campo) es la traducción automática (TA)  .
-Se trata de sistemas que producen traducciones completas de oraciones fuente  .
-El desarrollo de un sistema de TA incluye una fase de aprendizaje, durante la que el sistema usa la memoria de traducción para aprender correspondencias entre palabras o frases en los dos idiomas  .
-Al tiempo de traducción, el sistema busca en su memoria de correspondencias coincidencias con segmentos de la oración fuente, genera las traducciones de los segmentos, y las ordenan para producir la oración meta  .
-El traductor de Google (Wu et al., 2016) es un sistema de TA muy conocido  .
-Actualmente traduce entre cada par de idiomas en una lista de 104  .
-Para pares de lenguas que se benefician de corpus substanciales, como el inglés y el castellano, los resultados son bastante impresionantes  .
-Esto se debe primero a la obsesión de Google con la recopilación de datos, en este caso ejemplos de traducciones entre el inglés y el castellano encontrados en Internet, y segundo a la introducción de métodos neuronales muy potentes en 2016  .
-Como ilustración, se dieron al traductor de Google las mismas oraciones que se habían presentado a OmegaT en el ejemplo anterior, y las tradujo todas al inglés perfectamente  .
+De manera general, la traducción asistida por computadora (TAC) consiste en aplicaciones basadas en memorias de traducción para ayudar a traductores en su trabajo .
+El usuario de un sistema TAC normalmente elige las memorias que se incluyen en la aplicación en el tiempo de traducción, a menudo restringidas a memorias con traducciones hechas por traductores fiables y tratando el dominio del texto fuente .
+Para ilustración, veamos el rendimiento de OmegaT (Smolej, 2016), una aplicación TAC gratuita y de código abierto .
+En este ejemplo, se ha cargado la memoria de traducción del CEPCE descrita arriba .
+El documento para traducir consiste en cuatro oraciones que se parecen en diferentes grados a las oraciones en el corpus mismo (es decir, en la memoria de traducción) .
+En la Figura 2, se muestra la interfaz de OmegaT y su rendimiento cuando se ha seleccionado la tercera oración fuente en el documento, la que se parece a la oración en la Figura 1 .
+La aplicación muestra en su ventana de coincidencias las oraciones en la memoria de traducción cargada que coinciden mejor a la oración fuente .
+Como la coincidencia en este caso no es perfecta, el usuario debe descubrir cuáles son los segmentos de la traducción inglesa que puede mantener en su traducción y cuáles son los que debe reemplazar .
+A medida que el traductor usa una aplicación TAC, el sistema almacena sus traducciones en una memoria de traducción que se puede guardar de manera separada o integrar en una memoria existente .
+Cuando el traductor traduzca un documento parecido, se beneficia de esta memoria de traducción guardada .
+La traducción automática .
+Otra aplicación de las memorias de traducción (aunque normalmente no se llaman “memorias de traducción” en este campo) es la traducción automática (TA) .
+Se trata de sistemas que producen traducciones completas de oraciones fuente .
+El desarrollo de un sistema de TA incluye una fase de aprendizaje, durante la que el sistema usa la memoria de traducción para aprender correspondencias entre palabras o frases en los dos idiomas .
+Al tiempo de traducción, el sistema busca en su memoria de correspondencias coincidencias con segmentos de la oración fuente, genera las traducciones de los segmentos, y las ordenan para producir la oración meta .
+El traductor de Google (Wu et al., 2016) es un sistema de TA muy conocido .
+Actualmente traduce entre cada par de idiomas en una lista de 104 .
+Para pares de lenguas que se benefician de corpus substanciales, como el inglés y el castellano, los resultados son bastante impresionantes .
+Esto se debe primero a la obsesión de Google con la recopilación de datos, en este caso ejemplos de traducciones entre el inglés y el castellano encontrados en Internet, y segundo a la introducción de métodos neuronales muy potentes en 2016 .
+Como ilustración, se dieron al traductor de Google las mismas oraciones que se habían presentado a OmegaT en el ejemplo anterior, y las tradujo todas al inglés perfectamente .
 Por ejemplo, la oración castellana resaltada en la Figura 2 se traduce como More than 90% of people who contract the infection survive
-El desafío de las lenguas sin muchos recursos  .
-Para traducir desde o hacia idiomas que no pertenecen al pequeño grupo de los privilegiados, no existen corpus bilingües suficientes para crear memorias de traducción útiles  .
-Una alternativa temporal es un sistema de traducción automática basada en reglas, el que se puede implementar utilizando recursos más disponibles: diccionarios digitales (o digitalizables), analizadores y generadores morfológicos (los que se pueden implementar con descripciones gramaticales), y, si existen, corpus monolingües  .
-En la siguiente sección, se describe tal sistema  .
-La Traducción por Segmentos Generalizados y Mainumby  .
-La Traducción por Segmentos Generalizados  .
-La Traducción por Segmentos Generalizados (TSG, también llamada Traducción de Dependencias Minimales) es una teoría de la traducción automática basada en reglas y un marco para la traducción asistida por computadora que incorpora la teoría (Gasser, 2017)  .
-Ejemplos del rendimiento Consideremos cómo el sistema traduce frases  .
-Los casos más simples son frases fijas como por eso  .
-Mainumby traduce una frase fija castellana a una frase (o palabra) fija en guaraní, ofreciendo opciones si hay múltiples traducciones (Figura 3)  .
-Más complejas son palabras o frases que involucran la morfología, es decir, en la traducción de sustantivos, adjetivos y verbos  .
-La Figura 4 muestra en ejemplo, la traducción de la palabra llamo  .
-En esos casos, Mainumby analiza la palabra castellana, generando una raíz y unas características gramaticales, como el tiempo y las características del sujeto del verbo (persona=1, número=plural en este caso)  .
-Entonces se traduce la raíz y finalmente se genera la palabra guaraní de la raíz guaraní y las características gramaticales copiadas de la palabra castellana  .
-Aún más complejas son frases que contienen palabras gramaticales castellanas que no corresponden a palabras guaraníes sino a morfemas  .
-La Figure 5 muestra un ejemplo, la traducción de la frase no te llamo  .
-En esos casos se aplica una o más transformaciones morfosintácticas a la frase, por las que se guaraniza parcialmente el castellano  .
-En este ejemplo las palabras no y te se eliminan y se incorporan como características gramaticales adjuntadas a la raíz, es decir, como negación y objeto de segunda persona singular  .
-El sistema puede también traducir frases más complejas que incluyen dos palabras léxicas y también correspondencias sintácticas entre las lenguas  .
-La Figura 6 muestra un ejemplo, la traducción de la frase se burla del presidente  .
-Después del análisis morfológico del verbo burla y del sustantivo presidente, una transformación morfosintáctica reemplaza el pronombre se con la característica +rflx,424 así distinguiendo el verbo transitivo burlar del verbo pronominal burlarse  .
-El léxico tiene una entrada que asocia el verbo burlarse (burlar_v[+rflx]) con el verbo guaraní ñembohory  .
-Esta entrada tiene también el conocimiento de que “burlarse de $s” en castellano corresponde a “ñembohory $s rehe” en guaraní, donde “$s” representa cualquier sustantivo  .
-Para presidente, Mainumby encuentra otra entrada en su léxico que asocia este sustantivo (más bien, su raíz) con el sustantivo guaraní mburuvicha  .
-Las dos entradas se funden, convirtiéndose en un segmento que se realiza, después de la generación morfológica, como oñembohory mburuvicha rehe  .
-Interfaz   .
-En la Figura 7, se ve la interfaz de Mainumby donde un usuario introduce oraciones para traducir  .
-En la actual versión de la aplicación, o escribe directamente en el espacio o copia y pega el texto de otro documento  .
-En futuras versiones, se podrá subir documentos para traducir de la computadora del usuario  .
-En la Figura 8, se ve la ventana en la que el usuario selecciona o introducir su traducción de una oración  .
-En el espacio “Actual oración”, se muestra la oración fuente en segmentos coloreados  .
-Los grises representan partes de la oración que Mainumby no pudo traducir  .
-Cuando el usuario hace clic en un segmento de la oración fuente, las opciones que Mainumby ofrece para traducir el segmento se muestran en el espacio “Frase”, como ilustrado en la figura para el segmento por la hierba  .
-Entonces el usuario puede seleccionar una de las opciones o también rechazar todas e introducir su propia traducción en el espacio provisto  .
-Cada oración que el usuario traduce con (o sin) ayuda de Mainumby se incluye en el espacio “Documento”  .
-Finalmente, la traducción del documento se puede guardar en un archivo en la computadora del usuario  .
-Las traducciones hechas por usuarios se registran, formando parte de las memorias de traducción que Mainumby construye a medida que se utiliza  .
-Traducción léxica y sintáctica  .
-• Selección, instanciación, y fusión de segmentos generalizados coincidentes  .
+El desafío de las lenguas sin muchos recursos .
+Para traducir desde o hacia idiomas que no pertenecen al pequeño grupo de los privilegiados, no existen corpus bilingües suficientes para crear memorias de traducción útiles .
+Una alternativa temporal es un sistema de traducción automática basada en reglas, el que se puede implementar utilizando recursos más disponibles: diccionarios digitales (o digitalizables), analizadores y generadores morfológicos (los que se pueden implementar con descripciones gramaticales), y, si existen, corpus monolingües .
+En la siguiente sección, se describe tal sistema .
+La Traducción por Segmentos Generalizados y Mainumby .
+La Traducción por Segmentos Generalizados .
+La Traducción por Segmentos Generalizados (TSG, también llamada Traducción de Dependencias Minimales) es una teoría de la traducción automática basada en reglas y un marco para la traducción asistida por computadora que incorpora la teoría (Gasser, 2017) .
+Ejemplos del rendimiento Consideremos cómo el sistema traduce frases .
+Los casos más simples son frases fijas como por eso .
+Mainumby traduce una frase fija castellana a una frase (o palabra) fija en guaraní, ofreciendo opciones si hay múltiples traducciones (Figura 3) .
+Más complejas son palabras o frases que involucran la morfología, es decir, en la traducción de sustantivos, adjetivos y verbos .
+La Figura 4 muestra en ejemplo, la traducción de la palabra llamo .
+En esos casos, Mainumby analiza la palabra castellana, generando una raíz y unas características gramaticales, como el tiempo y las características del sujeto del verbo (persona=1, número=plural en este caso) .
+Entonces se traduce la raíz y finalmente se genera la palabra guaraní de la raíz guaraní y las características gramaticales copiadas de la palabra castellana .
+Aún más complejas son frases que contienen palabras gramaticales castellanas que no corresponden a palabras guaraníes sino a morfemas .
+La Figure 5 muestra un ejemplo, la traducción de la frase no te llamo .
+En esos casos se aplica una o más transformaciones morfosintácticas a la frase, por las que se guaraniza parcialmente el castellano .
+En este ejemplo las palabras no y te se eliminan y se incorporan como características gramaticales adjuntadas a la raíz, es decir, como negación y objeto de segunda persona singular .
+El sistema puede también traducir frases más complejas que incluyen dos palabras léxicas y también correspondencias sintácticas entre las lenguas .
+La Figura 6 muestra un ejemplo, la traducción de la frase se burla del presidente .
+Después del análisis morfológico del verbo burla y del sustantivo presidente, una transformación morfosintáctica reemplaza el pronombre se con la característica +rflx,424 así distinguiendo el verbo transitivo burlar del verbo pronominal burlarse .
+El léxico tiene una entrada que asocia el verbo burlarse (burlar_v[+rflx]) con el verbo guaraní ñembohory .
+Esta entrada tiene también el conocimiento de que “burlarse de $s” en castellano corresponde a “ñembohory $s rehe” en guaraní, donde “$s” representa cualquier sustantivo .
+Para presidente, Mainumby encuentra otra entrada en su léxico que asocia este sustantivo (más bien, su raíz) con el sustantivo guaraní mburuvicha .
+Las dos entradas se funden, convirtiéndose en un segmento que se realiza, después de la generación morfológica, como oñembohory mburuvicha rehe .
+Interfaz .
+En la Figura 7, se ve la interfaz de Mainumby donde un usuario introduce oraciones para traducir .
+En la actual versión de la aplicación, o escribe directamente en el espacio o copia y pega el texto de otro documento .
+En futuras versiones, se podrá subir documentos para traducir de la computadora del usuario .
+En la Figura 8, se ve la ventana en la que el usuario selecciona o introducir su traducción de una oración .
+En el espacio “Actual oración”, se muestra la oración fuente en segmentos coloreados .
+Los grises representan partes de la oración que Mainumby no pudo traducir .
+Cuando el usuario hace clic en un segmento de la oración fuente, las opciones que Mainumby ofrece para traducir el segmento se muestran en el espacio “Frase”, como ilustrado en la figura para el segmento por la hierba .
+Entonces el usuario puede seleccionar una de las opciones o también rechazar todas e introducir su propia traducción en el espacio provisto .
+Cada oración que el usuario traduce con (o sin) ayuda de Mainumby se incluye en el espacio “Documento” .
+Finalmente, la traducción del documento se puede guardar en un archivo en la computadora del usuario .
+Las traducciones hechas por usuarios se registran, formando parte de las memorias de traducción que Mainumby construye a medida que se utiliza .
+Traducción léxica y sintáctica .
+• Selección, instanciación, y fusión de segmentos generalizados coincidentes .
 Meta .
 • Realización de reglas de concordancia
 Ordenación de palabras dentro de segmentos
 Generación morfológica de palabras .
-Estatus del proyecto y pasos futuros  .
-Actualmente Mainumby tiene un léxico de aproximadamente 10000 segmentos generalizados, la mayoría extraídos de un diccionario bilingüe digital  .
-5 Tiene además un conjunto de aproximadamente 100 reglas de transformación morfosintácticas  .
-Los componentes más amplios de la aplicación son el analizador y el generador morfológicos, compilados en tres ficheros, de 0,5 MB, 3 MB, y 12 MB  .
-Las reglas y procesadores morfosintácticos se basan en descripciones publicadas de la gramática guaraní (Ayala, 1996; Krivoshein de Canese & Acosta Alcaraz, 2007; Zarratea, 2002)  .
-La implementación es de código abierto, y todo el código informático y los datos están descargables a través de este enlace: https:/github.com/hltdi/mainumby  .
-Mainumby se ha implementado en forma de una aplicación web, accesible a través de este enlace: http://plogs.soic.indiana.edu/mainumby  .
-El sistema se podrá evaluar solamente con la participación de traductores    .
-Informalmente, las fortalezas de Mainumby incluyen la traducción de la morfología y la facilidad de agregar entradas (segmentos generalizados) al léxico que permiten la traducción de muchas frases    .
-Sus debilidades incluyen grandes lagunas en su conocimiento léxico (debido a las imitaciones del diccionario en el que se basa) y la brevedad de los segmentos en las traducciones (véase la oración en la Figura 8 para un ejemplo)    .
-Ambas se podrían superar hasta cierto punto por la inclusión de más información léxica proveída por usuarios del sistema    .
-Siguientes pasos  .
-La siguiente fase del proyecto empezará con la participación de traductores del castellano al guaraní experimentados  .
-Incluirá: Evaluación del marco lingüístico y de la interfaz por traductores y mejoramiento según los resultados  .
-Es decir, de ahora en adelante, el trabajo debe ser colaborativo, incorporando las experiencias de traductores en el diseño de la interfaz, el mejoramiento del conocimiento del sistema, y la recopilación de memorias de traducción  .
+Estatus del proyecto y pasos futuros .
+Actualmente Mainumby tiene un léxico de aproximadamente 10000 segmentos generalizados, la mayoría extraídos de un diccionario bilingüe digital .
+5 Tiene además un conjunto de aproximadamente 100 reglas de transformación morfosintácticas .
+Los componentes más amplios de la aplicación son el analizador y el generador morfológicos, compilados en tres ficheros, de 0,5 MB, 3 MB, y 12 MB .
+Las reglas y procesadores morfosintácticos se basan en descripciones publicadas de la gramática guaraní (Ayala, 1996; Krivoshein de Canese & Acosta Alcaraz, 2007; Zarratea, 2002) .
+La implementación es de código abierto, y todo el código informático y los datos están descargables a través de este enlace: https:/github.com/hltdi/mainumby .
+Mainumby se ha implementado en forma de una aplicación web, accesible a través de este enlace: http://plogs.soic.indiana.edu/mainumby .
+El sistema se podrá evaluar solamente con la participación de traductores .
+Informalmente, las fortalezas de Mainumby incluyen la traducción de la morfología y la facilidad de agregar entradas (segmentos generalizados) al léxico que permiten la traducción de muchas frases .
+Sus debilidades incluyen grandes lagunas en su conocimiento léxico (debido a las imitaciones del diccionario en el que se basa) y la brevedad de los segmentos en las traducciones (véase la oración en la Figura 8 para un ejemplo) .
+Ambas se podrían superar hasta cierto punto por la inclusión de más información léxica proveída por usuarios del sistema .
+Siguientes pasos .
+La siguiente fase del proyecto empezará con la participación de traductores del castellano al guaraní experimentados .
+Incluirá: Evaluación del marco lingüístico y de la interfaz por traductores y mejoramiento según los resultados .
+Es decir, de ahora en adelante, el trabajo debe ser colaborativo, incorporando las experiencias de traductores en el diseño de la interfaz, el mejoramiento del conocimiento del sistema, y la recopilación de memorias de traducción .
 ÑE’ẼNDY’I LA ANTROPOLOGÍA EVOLUTIVA Y SU INCIDENCIA EN LA DESVALORIZACIÓN DE LAS LENGUAS Y LAS CULTURAS PROPIAS DE AMÉRICA
 En el presente trabajo se aborda la problemática de la incidencia de la antropologíaevolutiva en las lenguas y culturas de América Latina .
 Esta disciplina, desde que seconsolidó por Tylor y Morgan, estuvo al servicio del colonialismo .
@@ -16589,9 +16589,9 @@ Esta construcción abstracta de la denominación humana tuvo su implicancia en e
 Aparentemente es una palabra muy inocente, pero cuando se analiza a profundidad tiene su engendro en la vida social .
 Existen fuentes que afirman que es una palabra proveniente del griego, que significa literalmente el que balbuceo, y la historia indica que los griegos se referían a los extranjeros que no hablaban bien la lengua griega, aunque Isócrates no concebía a los bárbaros como extranjeros sino como individuos que carecían de educación .
 En fin, se puede afirmar que en la antigüedad designaban el reconocimiento de la existencia humana culturalmente alterna, sin adosar a la diferencia del prejuicio de la inferioridad, pero adjudicaban el idioma como tema de humanidad .
-El bárbaro imaginado en el medioevo cristiano, que más tarde llegaría a América, incluía un acervo de estereotipos negativos, causales de desprecio e interiorización, que tal vez pueden ser emblematizados por la idolatría, sinónimo de subhumanidad o no humanidad  .
-A la construcción ideológica del bárbaro como pagano y, por ende, semihumano, le acompañaban el prejuicio de la “naturaleza inferior” y de la “subordinación a la raza superior” derivados de la teoría aristotélica de la desigualdad humana; motivos que serán retomados en 1550 durante la mencionada polémica entre Las Casas y Sepúlveda, este último aduciendo la semihumanidad y la necesaria esclavitud de los nativos de América  .
-Durante el Renacimiento parece haber quedado establecida una dicotomía en la valoración de la barbarie; para algunos continuó siendo sinónimo de inferioridad y depravación, mientras que para otros pasó a designar una alteridad positiva y a ser expresión de inocencia natural  .
+El bárbaro imaginado en el medioevo cristiano, que más tarde llegaría a América, incluía un acervo de estereotipos negativos, causales de desprecio e interiorización, que tal vez pueden ser emblematizados por la idolatría, sinónimo de subhumanidad o no humanidad .
+A la construcción ideológica del bárbaro como pagano y, por ende, semihumano, le acompañaban el prejuicio de la “naturaleza inferior” y de la “subordinación a la raza superior” derivados de la teoría aristotélica de la desigualdad humana; motivos que serán retomados en 1550 durante la mencionada polémica entre Las Casas y Sepúlveda, este último aduciendo la semihumanidad y la necesaria esclavitud de los nativos de América .
+Durante el Renacimiento parece haber quedado establecida una dicotomía en la valoración de la barbarie; para algunos continuó siendo sinónimo de inferioridad y depravación, mientras que para otros pasó a designar una alteridad positiva y a ser expresión de inocencia natural .
 La insurrección indígena fue un brusco despertar del sueño .
 Pero esta vez, en la era de la globalización, los rebeldes no permanecieron desconocidos y desamparados en la selva como en las rebeliones de siglos pasados, sino que se mostraron y dieron a conocer sus demandas ante el mundo entero por vía de los medios masivos de comunicación y de Internet .
 La antropología europea y la norteamericana han utilizado preferentemente los términos salvaje, primitivo y bárbaro para designar a los nativos de diferentes partes del mundo colonizado o subdesarrollado, aunque con amplias variaciones de grado, estos términos pueden ser considerados como sinónimos .
@@ -16709,7 +16709,7 @@ deber
 defender
 deficiencia
 demandar
-departamento  provincia
+departamento provincia
 derecho
 derogar
 descriptivo
@@ -16972,7 +16972,7 @@ Dicha reunión responde a ahondar esfuerzos con relación a la conmemoración de
 La titular de la cartera de Estado expresó su alegría por la apertura por parte del MRE en cuanto a la relación interinstitucional..
 Sesionó la Comisión Nacional de Conmemoración de Lenguas Indígenas.
 Este jueves se concretó la primera sesión de la Comisión Nacional de Conmemoración del Año Internacional de las Lenguas Indígenas, creada por Ley 6352/19. La misma fue presidida por la ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, por el titular del Instituto Paraguayo del Indígena (Indi), Édgar Olmedo, y por el ministro de la Secretaría Nacional de Cultura (SNC), Rubén Capdevila..
-En la apertura, la ministra de la SPL indicó que la primera sesión constituía 
+En la apertura, la ministra de la SPL indicó que la primera sesión constituía
 Al hablar de la situación actual de las lenguas indígenas del país dijo: “Ha’ekuéra imbovy, katu heta iñe’ẽnguéra ha ndojehechái chupekuéra. Es una población minoritaria, minorizada e invicibilizada”, manifestó..
 La ministra dijo, además, durante su intervención que las lenguas indígenas del Paraguay necesitan ser reconocidas, fortalecidas y valoradas, y no podemos valorar ni respetar lo que no conocemos. “Necesitamos de una política pública inclusiva, participativa y con enfoque intercultural”, concluyó..
 En la sesión se presentó el reglamento interno de funcionamiento de la Comisión y en una próxima convocatoria, prevista para noviembre, se realizará el análisis del plan de trabajo de la Comisión..
@@ -17702,8 +17702,7 @@ La apertura oficial del Seminario, que contará con altas autoridades locales y 
 El Seminario está organizado por el Gobierno de Paraguay y el Sector de Comunicación e Información de la UNESCO, División de Sociedades del Conocimiento, en estrecha colaboración con el Programa Intergubernamental de Información para Todos (IFAP), organizaciones de armonización y documentación de lenguas nacionales y regionales, organizaciones de investigación y educación superior, sociedad civil, en particular organizaciones de pueblos indígenas en Paraguay.
 Constituirá un espacio de análisis y discusión, que reúne a ponentes invitados tanto de países de ALC como de otras regiones.
 Así mismo, integran la lista de invitados los representantes de las organizaciones gubernamentales y no gubernamentales responsables de las políticas lingũísticas de la región de América Latina y el Caribe, a expertos, investigadores y representantes de otros países y al personal de la UNESCO.
-Constituyen los principales objetivos del Seminario: 
- -Promover los derechos humanos y las libertades fundamentales para todos los hablantes de las lenguas.
+Constituyen los principales objetivos del Seminario: -Promover los derechos humanos y las libertades fundamentales para todos los hablantes de las lenguas.
 -Sensibilizar sobre la importancia de la diversidad lingũística para el desarrollo sostenible y proporcionar asistencia a los Estados Miembros sobre la implementación de los instrumentos normativos de las Naciones Unidas, como la Recomendación (2003), la Resolución 71/178 de la Asamblea General de las Naciones Unidas y otros documentos e iniciativas pertinentes.
 -Ofrecer recomendaciones para las acciones regionales de seguimiento a la promoción de la diversidad lingũística, aprovechando los resultados de la Conferencia Internacional sobre Multilingũismo en el Ciberespacio, organizado en noviembre de 2015 por la UNESCO en San José, Costa Rica.
 -Contribuir de modo sustantivo a un análisis actualizado de la cuestión relacionada con las lenguas, a nivel nacional y regional, que refuerce la capacidad para su abordaje en una dimensión adecuada.
@@ -17794,7 +17793,7 @@ La Conadis es presidida la Secretaría Nacional por los Derechos Humanos de las 
 La SPL lidera la Subcomisión de Información, Comunicación y Lengua de Señas que forma parte de la Conadis.
 La primera sesión del año 2018 de la Conadis se realizó en el salón de eventos de la Universidad Autónoma de Asunción con la participación de ministros, viceministros y representantes de las Secretarías del Estado, como también de los referentes de las organizaciones de personas con discapacidad.
 El “REY DE COPAS” APUESTA AL USO DEL GUARANÍ
- El Club Olimpia se mantiene firme en su intención de utilizar de manera oficial la lengua guaraní para difundir las informaciones desde sus medios virtuales.
+El Club Olimpia se mantiene firme en su intención de utilizar de manera oficial la lengua guaraní para difundir las informaciones desde sus medios virtuales.
 La reacción de los seguidores a la iniciativa es altamente satisfactoria al punto de entablarse una interacción masiva en dicha lengua.
 La ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, celebra el hecho de que desde la directiva de un club renombrado se esté emitiendo mensajes en guaraní.
 “Es un camino al reposicionamiento del idioma.
@@ -18134,14 +18133,12 @@ El acto protocolar se realizó en el Salón Multiuso del ISE.
 SPL PRESENTÓ INFORME DE GESTIÓN ANUAL.
 La Secretaría de Políticas Lingũísticas (SPL) presentó este viernes el informe referido a la rendición de cuentas del año 2016, asimismo los logros y avances del primer semestre del año 2017 y las proyecciones de las tareas misionales de la institución como ente rector para el cumplimiento de la Ley 4251/10 de Lenguas.
 La presentación del Informe, presentada en el salón multiuso del Instituto Superior de Educación (ISE), fue liderada por la titular de la SPL, Ladislaa Alcaraz de Silvero, acompañada por los directores generales.
-En el siguiente enlace se podrá acceder al resumen del Informe de Gestión: 
- Clic aquí para descargar
+En el siguiente enlace se podrá acceder al resumen del Informe de Gestión: Clic aquí para descargar
 AVANZAN TRABAJOS DE INVESTIGACIÓN Y REGISTRO DE LA LENGUA MANJUI.
 Este viernes se realizó una mesa de trabajo entre el equipo técnico de la Secretaría de Políticas Lingũísticas liderado por la Directora General de Documentación y Promoción de Lenguas Indígenas, María De las Nieves Montiel, y la técnica Sonia Avalos; la reunión fue con el director de la casa productora Planeador, Luis Bogado, a fin de socializar los avances de la investigación y registros de documentación de la lengua manjui.
 El trabajo lingũístico liderado por la SPL se enmarca dentro del proyecto “Rescate lingũístico Pueblo Lumnanas - Manjui” adjudicado por el Consejo Nacional de Ciencia y Tecnología (Conacyt).
 CONFERENCIA MAGISTRAL SOBRE “LENGUA GUARANÍ Y EL ACCESO A LA SALUD Y LA JUSTICIA” DISPONIBLE EN LA WEB.
-La conferencia magistral “Lengua guaraní y el acceso a la salud y la justicia” dictada en la Universidad de Integración de las Américas (UNIDA) el pasado sábado 3 de junio por la ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, se encuentra disponible, de manera gratuita, en el siguiente enlace: 
- Clic aquí para descargar
+La conferencia magistral “Lengua guaraní y el acceso a la salud y la justicia” dictada en la Universidad de Integración de las Américas (UNIDA) el pasado sábado 3 de junio por la ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, se encuentra disponible, de manera gratuita, en el siguiente enlace: Clic aquí para descargar
 MINISTRA DE LA SPL EXPUSO EN CONGRESO INTERNACIONAL SOBRE ROA BASTOS.
 La ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, participó este miércoles como expositora en la mesa redonda sobre “Roa y el universo guaraní”, en el marco del Congreso Internacional “Augusto Roa Bastos entre la literatura y la historia” realizado entre los días 6, 7 y 8 de junio en la Feria Internacional del Libro, en Asunción.
 La intervención de la ministra se centró en los ecos del guaraní en las obras de Augusto Roa Bastos y habló sobre la alternancia de código, interferencias léxicas, relaciones de jerarquía, intenciones y funciones comunicativas, entre el castellano y guaraní en situación de contacto.
@@ -18199,7 +18196,7 @@ La SPL celebra que cada día más entidades se adhieran a la iniciativa de incor
 TARJETA DEL MEC REDACTADA EN BILINGŨE OFICIAL.
 El uso formal y equitativo de nuestras dos lenguas oficiales, guaraní-castellano, es posible; prueba de ello es la tarjeta de invitación a la Marcha Cívica Estudiantil por la Fiesta Patria divulgada por el Ministerio de Educación y Ciencias (MEC).
 La Secretaría de Políticas Lingũísticas destaca el hecho y augura su emulación en las demás dependencias del Estado.
-CHARLA MAGISTRAL DE LA MINISTRA ALCARAZ EN UNA UNIVERSIDAD  La Ministra de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, dictó este sábado una Charla Magistral sobre “Políticas Lingũísticas en Educación Superior”.
+CHARLA MAGISTRAL DE LA MINISTRA ALCARAZ EN UNA UNIVERSIDAD La Ministra de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, dictó este sábado una Charla Magistral sobre “Políticas Lingũísticas en Educación Superior”.
 Fue en la Escuela de Posgrado de Maestría en Gestión de la Educación y Didáctica Universitaria Superior de la Universidad de la Integración de las Américas (UNIDA), en la ciudad de Asunción.
 MINISTRA ALCARAZ EXPONDRÁ SOBRE EL GUARANÍ EN REPÚBLICA DOMINICANA.
 La Ministra de la Secretaría de Políticas Lingũísticas (SPL), Ladislaa Alcaraz de Silvero, ofrecerá dos disertaciones en la “XX Feria Internacional del Libro Santo Domingo 2017” del país caribeño República Dominicana.
@@ -18253,8 +18250,7 @@ Asimismo, ha escrito más de un texto dedicado al deporte.
 El homenaje a su figura como deportista se enmarca dentro de los festejos por el centenario de su nacimiento.
 La Ministra de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, participó del evento y resaltó las múltiples facetas del escritor.
 Asimismo, aludiendo al día internacional de la lengua materna, destacó el reconocimiento favorable que tuvo Roa Bastos a la lengua guaraní dentro de la cultura paraguaya, y la condición peculiar del bilingũismo, guaraní-castellano.
-LA SECRETARÍA DE POLÍTICAS LINGŨÍSTICAS COMUNICA:
- Ante el hecho acaecido recientemente en Ciudad del Este, donde un Magistrado rechazó un expediente judicial por estar redactado en guaraní, la Secretaría de Políticas Lingũísticas manifiesta su total repudio.
+LA SECRETARÍA DE POLÍTICAS LINGŨÍSTICAS COMUNICA: Ante el hecho acaecido recientemente en Ciudad del Este, donde un Magistrado rechazó un expediente judicial por estar redactado en guaraní, la Secretaría de Políticas Lingũísticas manifiesta su total repudio.
 Acciones de este tipo debilitan el proceso de normal uso de la lengua guaraní en todos los ámbitos, promovido desde esta institución.
 La lengua guaraní es declarada oficial, igual que el castellano, en el Artículo 140 de la Constitución Nacional; por lo tanto, su uso, tanto oral como escrito, es válido en todo acto administrativo de los tres Poderes del Estado paraguayo.
 Asimismo, la Ley 4251/10 de Lenguas declara la validez del idioma guaraní en la administración de la justicia, a fin de garantizar los derechos lingũísticos de las personas usuarias de dicho idioma en un proceso tan sensible como es la atención de la justicia.
@@ -18521,8 +18517,7 @@ CONTINÚA RECEPCIÓN DE CARPETAS PARA CUBRIR TRES CARGOS PERMANENTES EN LA SECRE
 Los interesados en postularse para los cargos de Tesorero y Asistente Técnico de Auditoría pueden inscribirse hasta el día martes 9 de agosto.
 La inscripción para el cargo de Asistente de Mesa de Entrada PcD es hasta el día viernes 12 de agosto.
 Para la postulación al Concurso Público de Oposición para cubrir los tres cargos vacantes los interesados deberán entrar a la página web: www.paraguayconcursa.gov.py, donde se dispone de todas las informaciones referentes al concurso; asimismo, los formularios que deberán llenarse para la postulación.
-Un recuento histórico de las calificaciones obtenidas hasta la fecha:
- El segundo semestre del año 2013 se cerró con una calificación de 0.96; el primer semestre del año siguiente se obtuvo una calificación de 1.59; el segundo semestre del mismo año se alcanzó 1.79; en el primer semestre del año 2015 la calificación ascendió a 1.97; el segundo semestre del mismo año se cerró con 2.55; y la última calificación correspondiente al primer semestre del año 2016 es de 3.23.
+Un recuento histórico de las calificaciones obtenidas hasta la fecha: El segundo semestre del año 2013 se cerró con una calificación de 0.96; el primer semestre del año siguiente se obtuvo una calificación de 1.59; el segundo semestre del mismo año se alcanzó 1.79; en el primer semestre del año 2015 la calificación ascendió a 1.97; el segundo semestre del mismo año se cerró con 2.55; y la última calificación correspondiente al primer semestre del año 2016 es de 3.23.
 CONCLUYÓ CON ÉXITO EL SEMINARIO TALLER SOBRE INVESTIGACIÓN LINGŨÍSTICA EN PARAGUAY.
 Una enriquecedora experiencia académica se vivió hoy durante el desarrollo del Seminario Taller “La investigación lingũística en Paraguay”.
 Especialistas en el área de la investigación lingũística, tanto nacionales como extranjeros, compartieron sus trabajos de investigación con el auditorio.
@@ -18653,8 +18648,7 @@ Las entidades reconocidas forman parte del Sistema de Monitoreo de Recomendacion
 El reconocimiento fue recibido por el técnico de la SPL, Carlos Garay, quien es representante de la SPL ante el mencionado organismo.
 MINISTRA ALCARAZ PARTICIPÓ EN EL EVENTO DE PRESENTACIÓN DEL MANUAL OFICIAL PARA ELABORACIÓN DE TEXTOS NORMATIVOS.
 La ministra-ejecutiva de la Secretaría de Políticas Lingũísticas, Ladislaa Alcaraz de Silvero, asistió este jueves al acto público de presentación del reglamento para la elaboración de textos normativos y el informe final del proyecto que reduce normas jurídicas para el Ministerio de Industria y Comercio; y que busca el reordenamiento jurídico paraguayo que rigen el comercio y las inversiones.
-SPL PROPONE UN JUEGO INTERACTIVO PARA APRENDER MÁS EL GUARANÍ
- La Secretaría de Políticas Lingũísticas (SPL), desde su Dirección de Tecnologías de la Información y Comunicación, ofreció al público durante la Feria Internacional del Libro Asunción 2016 un juego interactivo que mide la competencia escrita en guaraní de los usuarios de dicha lengua.
+SPL PROPONE UN JUEGO INTERACTIVO PARA APRENDER MÁS EL GUARANÍ La Secretaría de Políticas Lingũísticas (SPL), desde su Dirección de Tecnologías de la Información y Comunicación, ofreció al público durante la Feria Internacional del Libro Asunción 2016 un juego interactivo que mide la competencia escrita en guaraní de los usuarios de dicha lengua.
 El didáctico juego consiste en escuchar audios de palabras en guaraní que luego debe ser escrito correctamente por el participante para ir avanzando en los niveles que propone el juego.
 El juego interactivo bautizado con el nombre “Jahuga”, en breve estará alojado en el sitio web de la SPL para todos los interesados.
 OFRECEN TALLER PARA COMUNICADORES INDÍGENAS.
@@ -19753,7 +19747,7 @@ Lanzan nueva edición del Concurso de Cuentos Cortos en Guaraní y Castellano
 Este martes, en una rueda de prensa, se realizó el lanzamiento de la 16ª edición del Concurso de Cuentos Cortos en Guaraní y Castellano organizado por el Centro Cultural de la República El Cabildo y la Academia Olímpica Paraguaya, con el apoyo del Comité Olímpico Paraguayo, la Secretaría de Políticas Lingüísticas y la Academia de la Lengua Guaraní.
 La SPL destaca la iniciativa por constituirse en un proyecto sostenido en el tiempo y que da la misma oportunidad y reconocimiento tanto a los que escriben en guaraní como a quienes lo hacen en castellano, demostrando así la equidad y convivencia armónica entra ambas lenguas oficiales.
 La presentación de la nueva edición del concurso se concretó en el salón de eventos del Comité Olímpico Paraguayo y contó con la presencia de autoridades de las instituciones organizadoras, como también de las que apoyan.
-Todas las bases y condiciones, así como de los premios que otorga esta edición del concurso, se podrán leer en este link  Bases y Condiciones del Concurso.
+Todas las bases y condiciones, así como de los premios que otorga esta edición del concurso, se podrán leer en este link Bases y Condiciones del Concurso.
 En evento internacional, exponen sobre buenas prácticas de Paraguay a favor de pueblos indígenas
 La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, fue invitada hoy para participar en nombre de Paraguay en un foro internacional que tuvo como sede Bolivia.
 Habló sobre las buenas prácticas del Estado paraguayo a favor de los pueblos indígenas, la recuperación y revitalización de las lenguas indígenas emprendidas desde la cartera a su cargo, entre otros temas.
@@ -19839,7 +19833,7 @@ La misma comitiva estará participando de otros eventos en línea para represent
 La Subcomisión de Información, Comunicación y Lengua Señas sesionó por primera vez en el 2021
 El reconocimiento de la importancia de la lengua materna y la atención de la misma son derechos consagrados en la Ley 4251/10 “De lenguas”.
 La celebración de la lengua materna es apoyada por la Organización de las Naciones Unidas, Ministerio de Educación y Ciencias, Academia de la Lengua Guaraní, Academia Paraguaya de la Lengua Española, Comisión Lingüística del Pueblo Nivaclé, universidades públicas, institutos superiores, Fenapas, Inaes, Consejo de Educación Indígena, lingüistas y académicos nacionales e internacionales.
-L engua materna  se refiere a la primera lengua adquirida por una persona, generalmente en el seno de un hogar y transferida por la madre.
+L engua materna se refiere a la primera lengua adquirida por una persona, generalmente en el seno de un hogar y transferida por la madre.
 En Paraguay, el guaraní sigue siendo la lengua materna de la mayoría de los habitantes.
 Academia presenta primer Diccionario de la Lengua Guaraní del Paraguay
 La Academia de la Lengua Guaraní realizará este viernes 29 de enero, a las 10:00, el lanzamiento oficial del Diccionario de la Lengua Guaraní del Paraguay, primera obra de este género producida por la entidad rectora de la normativización de la lengua guaraní.
@@ -19853,7 +19847,7 @@ Además, tiene años de experiencia en el ámbito de la docencia.
 En cuanto al trabajo con comunidades indígenas ha coordinado el programa de alfabetización no formal a nivel nacional, con pueblos originarios: Guana, Mbya, Ava Guaraní, Pãi Tavyterã y Toba Qom.
 La actividad virtual donde se realizó la presentación de la nueva directora de la DGDPLI, desarrollada a través de la plataforma Zoom, convocó principalmente a los técnicos de la mencionada dirección.
 Llaman a concurso de novela inédita con importante gratificación
-Las bases y condiciones del concurso se podrán leer en este enlace  Bases y Condiciones.
+Las bases y condiciones del concurso se podrán leer en este enlace Bases y Condiciones.
 Este premio, que tendrá una periodicidad bienal, es el mayor en su género en el Paraguay por el monto de la gratificación, y constituye un homenaje a la prestigiosa historiadora y escritora compatriota Beatriz Rodríguez Alcalá de González Oddone.
 “Karai Atõ”, nueva novela escrita en guaraní
 Desde la Secretaría de Políticas Lingüísticas saludamos y expresamos nuestra alegría por la aparición de una nueva novela escrita enteramente en guaraní titulada “Karai Atõ”, de la autoría de José Silva Pedrozo.
@@ -19863,7 +19857,7 @@ La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcar
 El edificio que cuenta con cuatro niveles fue construido con recursos proveídos a través del Tesoro Nacional y permitirá optimizar la importante tarea brindada por la agencia que se encarga de evaluar y acreditar las distintas carreras de las diferentes universidades del país.
 CONES presentó su informe de gestión
 La ministra de la Secretaria de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, participo del acto de rendición de cuentas del Consejo Nacional de Educación Superior, con la participación del presidente de la República, Mario Abdo Benítez.
-Además en dicho evento se realizó la  habilitación oficial de su nueva sede.
+Además en dicho evento se realizó la habilitación oficial de su nueva sede.
 Dicha adquisición constituye un acontecimiento que consolida la Educación Superior en Paraguay.
 SEDECO celebra su resolución 1000 traduciéndola al guaraní
 La ministra de la Secretaria de Políticas lingüísticas, Ladislaa Alcaraz de Silvero, recibió en la jornada al ministro de la Secretaría de Defensa del Consumidor y el Usuario (SEDECO) Juan Marcelo Estigarribia López, quien hizo entrega de la resolución número 1000, y la celebraron traduciéndola al guaraní.
@@ -19987,7 +19981,7 @@ Subcomisión de Fortalecimiento de la Interculturalidad se reunió este jueves
 Los representantes de las instituciones que integran la Subcomisión de Fortalecimiento de la Interculturalidad, de la Comisión Nacional de Conmemoración del Año Internacional de las Lenguas Indígenas, mantuvo este jueves una reunión de trabajo de manera virtual.
 Fue con el objetivo de planificar un cronograma de actividades a favor de las lenguas indígenas.
 Entre los puntos tocados se pueden mencionar la elaboración de cronograma y planificación de acciones, conforme a los acuerdos establecidos en la primera mesa técnica, así como la distribución de responsabilidades interinstitucionales, según la misión de cada institución y la definición de metodología de trabajo de la subcomisión, conforme al cronograma de la CNCAILI.
-Como una acción concreta se prevé la realización de  diferentes estrategias desde un espacio virtual que serán encaminadas desde esta comisión y se compartirán mediante los medios del Estado y las diferentes redes sociales de los ministerios y secretarías, las mismas responderían a la difusión de documentales en lengua guaraní, lectura de poesías y cantos, mediante los espacios referidos.
+Como una acción concreta se prevé la realización de diferentes estrategias desde un espacio virtual que serán encaminadas desde esta comisión y se compartirán mediante los medios del Estado y las diferentes redes sociales de los ministerios y secretarías, las mismas responderían a la difusión de documentales en lengua guaraní, lectura de poesías y cantos, mediante los espacios referidos.
 Coordinan posibles acciones para promoción de lenguas indígenas
 La Subcomisión de Promoción de Lenguas Indígenas, de la Comisión Nacional de Conmemoración del Año Internacional de Lenguas Indígenas, mantuvo una reunión de trabajo vía Zoom este miércoles.
 Acompañó desde la Secretaría de Políticas Lingüísticas (SPL) su titular, Ladislaa Alcaraz de Silvero; asimismo, la directora general de Planificación Lingüística, Celia Godoy, y técnicos del área de lenguas indígenas.
@@ -20004,3 +19998,210 @@ Autoridades de la Secretaría de Políticas Lingüísticas también estarán apo
 La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, en su carácter de presidenta de la CNCAILI, encabezó la reunión de trabajo, de la que también participaron representantes indígenas y autoridades de diferentes entidades, integrantes de la comisión.
 El encuentro fue propicio para analizar la vigencia y proyección de la Ley 6352/19, que crea la comisión.
 Asimismo, las distintas subcomisiones socializaron los avances de su gestión según los objetivos y metas de cada subgrupo.
+Además, se hizo la presentación y luego la validación del contenido del informe ejecutivo que será remitido a los tres poderes del Estado.
+Asimismo, trataron otros puntos de interés de la comisión, que trabaja de manera interinstitucional a favor de las lenguas indígenas.
+Tercera Sesión de la Subcomisión de Información, Comunicación y Lengua de Señas
+Este viernes 11, a través de la plataforma virtual Zoom, integrantes de los distintos sectores de la Subcomisión de Información, Comunicación y Lengua de Señas sesionaron por tercera vez en lo que va de este 2020.
+La sesión fue presidida por la titular de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, quien también lidera esta subcomisión de Conadis.
+Las cartas de aceptación serán enviadas hasta el 31 del mismo mes.
+Para más información se debe acudir a https://conpla.weebly.com/inscripciones.html.
+Lanzan aplicación en guaraní Aime Porã para consulta sobre medicamentos
+La empresa paraguaya Pharmanest presentó la innovadora herramienta tecnológica Aime Porã, una aplicación para teléfonos inteligentes que provee al usurario informaciones básicas en guaraní sobre medicamentos farmacéuticos de venta libre.
+La presentación se realizó este lunes 24, en el marco de la semana de la lengua guaraní Rohayhu Che Ñe’ẽ.
+Aime Porá es una app gratuita que permite al usuario con el simple acto de activar la cámara del celular y apuntar al medicamento, recibir un video de 30 segundos con la información básica del medicamento en el idioma guaraní.
+La traducción al guaraní y la grabación fueron posibles gracias al apoyo de la Secretaría de Políticas Lingüísticas (SPL), así como de la Academia de la Lengua Guaraní.
+La SPL celebra el hecho de que empresas privadas se sumen cada vez más con innovadores emprendimientos que fortalecen el uso efectivo de la guaraní.
+SPL distinguirá mañana a 23 promotores de la lengua guaraní de diferentes ámbitos
+En el marco de la séptima edición de la semana de la lengua guaraní, la Secretaría de Políticas Lingüísticas distinguirá con el trofeo Rohayhu che ñe’ẽ a 23 promotores de la lengua de distintos ámbitos, que incluyen programas y conductores de medios de comunicación, redes sociales, referentes del ámbito musical, académico, literario, deportivo, etc., que constantemente utilizan y promueven el uso del idioma guaraní.
+Foto: Entrega del trofeo Rohayhu che ñe’ẽ del 2019.
+El evento será mañana martes 25 de agosto, en coincidencia con el Día del Idioma Guaraní, a partir de las 10:00, a través de Facebook Live de la Secretaría de Políticas Lingüísticas.
+Con la distinción, la SPL busca incentivar el normal uso de la lengua guaraní en los diferentes ámbitos de la sociedad; asimismo, reconocer la labor de muchas personas e instituciones que apuestan por el uso de este idioma.
+La lista de galardonados crece cada año a fin de llegar a la mayor cantidad de personas que promueven el guaraní.
+Las personas, instituciones o programas de medios que serán distinguidos aparecen en el siguiente listado, con la clasificación por categorías:
+I-Medios y programas de televisión: 1-Ñanemba’éva de C9N, 2-Tercer tiempo de canal Trece;
+II-Comunicadores: 1-Elvira Martínez Iglesia, 2-Milciades Aguilera, 3-Guido Gustavo González;
+III-Redes sociales: 1-Fabio Esteche;
+Agenda de la semana de la lengua guaraní “Rohayhu che ñe’ẽ” 2020
+En el siguiente link Agenda de la semana de la lengua guaraní podrás acceder a todas las actividades programadas en el marco de la celebración de la semana de la lengua guaraní “Rohayhu che ñe’ẽ” 2020.
+Cada actividad podrá ser aprovechada y acompañada a través de Facebook Live de la Secretaría de Políticas Lingüísticas.
+Organizan 5° seminario sobre Traducción, Terminología y Diversidad Lingüística
+L a Fundación Yvy Marãe’ỹ y el Instituto Técnico Superior de Estudios Culturales y Lingüísticos Yvy Marãe’ỹ realizarán en la semana de la lengua guaraní el 5° seminario internacional sobre Traducción, Terminología y Diversidad Lingüística “Jarojera guarani ñe’ẽ”.
+El evento se desarrollará vía webinar y la participación será abierta y gratuita.
+Más información se puede solicitar en Yvy Marãe’ỹ (Cnel. Romero 318 ha Cnel. Bogado, San Lorenzo).
+Teléfonos (021) 580-548 y (0981) 282-969, o al correo yvymaraey@yvymaraey.com.py .
+“Rohayhu che ñe’ẽ”: Invitan a celebrar el guaraní por toda una semana
+edición consecutiva de la semana de la lengua guaraní “Rohayhu che ñe’ẽ” que será del 24 a 28 de agosto.
+El martes 25, Día del Idioma Guaraní, a las 10:00, se realizará la tradicional entrega del trofeo “Rohayhu che ñe’ẽ” a promotores y cultores de la lengua guaraní de diferentes ámbitos.
+A las 13:30 se realizará la clausura del Curso de Guaraní Comunicativo virtual para funcionarios públicos, actividad coordinada entre la SPL y la Secretaría de la Función Pública.
+También para el día martes, a las 18:00, la SPL en coordinación con el Instituto Superior de Lenguas (FF-UNA) realizarán la conferencia sobre “Hechos históricos de la lengua guaraní, como lengua oficial del Paraguay”.
+Para el día miércoles 26, a las 10:00, está previsto el conversatorio sobre “Avances de la normalización y normativización de la lengua guaraní en la actualidad”, un evento coordinado entre la SPL y la Academia de la Lengua Guaraní.
+El jueves 27, a las 10:00, se iniciará el “II seminario de buenas prácticas sobre el uso de la lengua guaraní en la función pública”, un evento coordinado entre la SPL y las Unidades de Asuntos Lingüísticos.
+Asimismo, para las 19:00 está prevista una serenata al idioma guaraní con destacados artistas, entre intérpretes, cantautores, etc.
+El día viernes 28, desde las 10:00, el MEC, la ANEAES y el CONES participarán del conversatorio sobre los “Avances de la lengua guaraní en la Educación Superior”.
+Y como clausura de la edición 2020 de “Rohayhu che ñe’ẽ”, a partir de las 19:00, está previsto el festival de poesía en guaraní.
+El abanico de actividades en homenaje a la lengua guaraní se podrá seguir en directo a través de Facebook Live de la Secretaría de Políticas Lingüísticas.
+Asimismo, desde la SPL invitamos a todos los connacionales, residentes en el país o en el exterior, a formar parte de la campaña de uso y promoción de la lengua guaraní en todos los ámbitos e interacción social.
+​SPL celebra su aniversario de manera virtual
+Hoy, 11 de agosto, al conmemorarse el aniversario número 9 de la Secretaría de Políticas Lingüísticas y con la actual situación generada por la pandemia, se realizó un acto de homenaje a través de Zoom, del mismo participaron autoridades y funcionarios de la institución, referentes de las Unidades de Asuntos Lingüísticos, artistas e invitados especiales.
+La Academia de la Lengua Guaraní (ALG) invita al conversatorio virtual gratuito sobre Guarani Ñe’ẽryru’apo (Elaboración del Diccionario Guaraní).
+Será este viernes 7 de agosto, a las 19:30, a través de Google Meet, y quien desee participar deberá llenar un formulario en https://docs.google.com/forms/d/e/1FAIpQLSe6eCxKilfodxOioEUX6pvjR-Jt9p8ihUKD0URUqIkUxN8ihg/viewform .
+El desarrollo del conversatorio Guarani Ñe’ẽryru’apo (Elaboración del Diccionario Guaraní) estará a cargo de la académica de número de la ALG, Ladislaa Alcaraz de Silvero, quien es directora del Departamento de Lexicografía y Terminología de dicha institución.
+La actividad académica forma parte de una serie de eventos que lleva adelanta la Academia de la Lengua Guaraní en este agosto, mes en que se celebra el Día del Idioma Guaraní.
+El idioma guaraní es visibilizado con el castellano en cartelería, banner, logos, videos, etc.
+De esta manera, estas iniciativas en el departamento de Itapúa se enmarcan en las líneas de la Ley 4251/10, De lenguas, con las que se promueve el uso equitativo de los dos idiomas oficiales del país.
+La Secretaría de Políticas Lingüísticas celebra y apoya esta y otras iniciativas que apuestan en la normalización del uso oral y escrito del guaraní con el castellano.
+Foto: Ilustrativa.
+Referentes de la Unidades de Asuntos Lingüísticos se reunieron vía Zoom
+Miembros de las Unidades de Asuntos Lingüísticos (UAL) de los diferentes Organismos y Entidades del Estado mantuvieron este lunes una reunión virtual con autoridades de la Secretaría de Políticas Lingüísticas (SPL) con el objetivo de planificar las próximas acciones para el cumplimiento de la Ley 4251/10, De lenguas, desde las distintas instituciones públicas.
+La reunión vía Zoom estuvo presidida por la ministra de la SPL, Ladislaa Alcaraz de Silvero, quien brindó unas orientaciones generales, referidas a la creación, funcionamiento y fortalecimiento de las UAL.
+Fue acompañada de la directora general de Planificación Lingüística de la SPL, Celia Godoy, quien proporcionó las orientaciones específicas sobre los próximos trabajos con los miembros de UAL.
+En la oportunidad analizaron el parecer técnico de las autoridades y representantes de los Organismos y Entidades del Estado sobre el Protocolo de Refrendo y Reconocimiento de Normativización de las Lenguas Indígenas del Paraguay.
+Asimismo, se establecieron acuerdos y compromisos para seguir avanzando en los objetivos propuestos desde este grupo de trabajo.
+Además de las autoridades de la SPL, participaron de la reunión representantes de la Secretaría Nacional de Cultura, Instituto Paraguayo del Indígena, Ministerio de Educación y Ciencias y el Consejo de Educación de pueblos indígenas.
+Celebran segunda sesión de Subcomision de Informacion, Comunicación y Lengua de Señas
+El director de Asesoría Jurídica informó a la subcomisión acerca de la Ley 6530/20, aprobada recientemente por el Poder Ejecutivo, que reconoce oficialmente a la Lengua de Señas Paraguaya (LSPy), como primera lengua de las personas con discapacidad auditiva del Paraguay, para la participación plena y efectiva en la sociedad.
+Dentro de la reunión se dialogó a partir de una visión compartida entre Estado y la sociedad civil para poder cumplir con los derechos lingüísticos de las personas con discapacidad auditiva.
+Además, la agenda de la reunión abordó los logros alcanzados de la subcomisión que fueron expuestos por la directora general Celia Godoy.
+Entre los logros se pueden mencionar el diseño del Plan de Acción para la implementación de la Ley 6354/19 que garantiza el acceso a la comunicación e información de las personas sordas y con discapacidad auditiva para realizar trámites en los Organismos y Entidades del Estado.
+Asimismo, la ministra de la SPL, Ladislaa Alcaraz de Silvero, expresó su alegría por concretar la reunión en estos tiempos y respetando las medidas de distanciamiento social estipuladas por el Ministerio de Salud Pública y Bienestar Social y que la metodología de trabajo se realizará de forma telemática.
+SPL e ISL-UNA firmaron convenio de cooperación
+La Secretaría de Políticas Lingüísticas (SPL) y el Instituto Superior de Lenguas (ISL) de la Facultad de Filosofía de la Universidad Nacional de Asunción (FF-UNA) concretaron este miércoles la firma de un convenio de cooperación interinstitucional.
+La rúbrica del documento, concretada en el despacho de la ministra de la SPL, presidieron las titulares de ambas entidades, Ladislaa Alcaraz de Silvero (SPL) y Valentina Canese (ISL).
+La motivación principal del acuerdo entre ambas instituciones es la de promover proyectos que apunten especialmente a la revalorización, la visualización y la normalización del uso oral y escrito de la lengua guaraní, como lengua oficial del país, y la documentación, promoción y difusión de las lenguas indígenas y de las demás lenguas nacionales y extranjeras.
+La SPL y el ISL se comprometen, además, trabajar en la incorporación de la lengua guaraní como lengua enseñada y de enseñanza en las carreras de grado y el desarrollo de cursos de postrado en las lenguas oficiales y extrajeras.
+Además de concretar la traducción de cartelería, folletería, y/u otros materiales requeridos por las partes.
+Reunión virtual de especialistas en lengua de señas
+Desde la Secretaría de Políticas Lingüísticas (SPL) se propició este martes una primera reunión virtual sobre lengua de señas con la participación de autoridades y técnicos de la mencionada institución, de la Secretaría Técnica de Planificación del Desarrollo Económico y Social (STP) y lingüistas de Argentina y Canadá.
+Foto: Captura de pantalla.
+Este primer encuentro virtual sirvió para dialogar desde el punto de vista lingüístico sobre posibles trabajos académicos, científicos y de planificación que puedan llevarse a cabo a fin de favorecer a la lengua de señas del Paraguay, y por ende a los usuarios; a partir del importante paso dado recientemente con la promulgación de la Ley 6530/20 “Que otorga reconocimiento oficial a la Lengua de Señas Paraguaya (LSPy)”.
+La titular de la SPL, Ladislaa Alcaraz de Silvero, presidió la reunión, quien fue acompañada desde la SPL por la directora general de Planificación Lingüística, Celia Godoy, el director general de Investigación lingüística, Domingo Aguilera, además de técnicos de dicha cartera de Estado.
+Los lingüistas y especialistas en lengua de señas del exterior que acompañaron la reunión fueron: Andrés Salanova, desde Canadá, y Yanina Boria y Alicia Avellana, desde Argentina.
+Desde la STP acompañaron Laura Riveros y Marcelo Goiburu, además de los intérpretes en lengua de señas.
+Guaraní, en la cima en navegador Firefox
+Es claro que el idioma guaraní va ganando su propio espacio en las nuevas tecnologías.
+Un ejemplo es el enorme trabajo que constituyó la traducción del navegador en internet Mozilla Firefox, un proyecto conjunto iniciado en el 2014 entre la Secretaría de Políticas Lingüísticas (SPL), Facultad Politécnica de la UNA y el Ateneo de Lengua y Cultura Guaraní.
+El total de palabras traducidas al guaraní del navegador para computadora de escritorio fue de 45.000, aproximadamente; sin embargo, por las constantes actualizaciones que exige la herramienta, la traducción al guaraní también sigue siendo realizada constantemente por el técnico de la Dirección General de Investigación Lingüística de la SPL, Lic. Abelardo Ayala.
+Es así que, entre los más de 100 idiomas a los que ya fue traducido Mozilla Firefox en todo el mundo, el guaraní se ubicó en primer lugar según el reporte mensual de la empresa, tras alcanzar 2.
+299 nuevas traducciones en el último mes reportado.
+Otro trabajo ya realizado con el navegador fue también la traducción al guaraní de toda la plataforma para teléfonos móviles que operan con Android.
+Otra importante tarea emprendida por las instituciones mencionadas arriba.
+Foto: Archivo.
+Comisión de lenguas indígenas sesionó de manera virtual
+Este viernes se celebró la tercera sesión de la Comisión Nacional del Año Internacional de las Lenguas Indígenas (CNAILI).
+Esta vez, atendiendo las medidas sanitarias por la pandemia, en encuentro se realizó de manera virtual a través de la herramienta Zoom.
+La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, en su carácter de presidenta de la CNAILI, presidió la sesión, que fue acompañada por varias autoridades y representantes de los diferentes sectores integrantes de la comisión, además de la participación de referentes indígenas.
+La ministra de la SPL realizó la contextualización del encuentro y la presentación de primer informe ejecutivo de la comisión presentado a los tres poderes del Estado.
+Luego, la encargada de Despacho de la Dirección General de Documentación y Promoción de Lenguas Indígenas de la SPL, Celia Godoy, habló sobre las acciones y los logros de las diferentes subcomisiones de la CNAILI.
+Posteriormente, integrantes de los diferentes sectores que integran la comisión participaron de un debate, intercambio de opiniones y posturas sobre los distintos aspectos que afectan tanto a los trabajos ya realizados y los proyectos a corto y mediano plazo de la comisión que favorecerán a las distintas lenguas indígenas del Paraguay
+“¡Qué hermosa es tu voz!”: 102 relatos de los enlhet
+Relatos de los enlhet sobre la historia de su pueblo” es el título del libro editado por Hannes Kalisch y Ernesto Unruh.
+Se trata de una recopilación de relatos de ancianos y ancianas enlhet, nacidos entre 1920 y 1940, que han vivido el proceso de colonización de su territorio con todas las consecuencias que ha traído para su sociedad.
+El valioso material de lectura se puede adquirir en Asunción en Servilibro (25 de Mayo y México, Teléf. 021 444 770) o en Museo del Barro (Grabadores del Cabichuí e/ Cañada y Emeterio Miranda, Teléf. 021 607 996); y en el Chaco, en la librería Fernheim de la ciudad de Filadelfia.
+En “¡Qué hermosa es tu voz!” los enlhet comparten piezas de la memoria de su pueblo a través de 102 relatos, expresados inicialmente en su lengua propia.
+Permiten escuchar así su visión sobre lo que su pueblo vivió en los últimos cien años.
+Lo hacen con la intención expresa de invitar a un diálogo con aquellos con que conviven en un mismo país.
+Las voces de los relatores enlhet difieren completamente de lo que los nuevos pobladores de su territorio dicen de ellos y su historia.
+Existen numerosas fuentes escritas que reflejan tal mirada externa, en su mayoría producidas en alemán por los colonos menonitas y sus misioneros.
+El pueblo indígena enlhet pertenece a la familia lingüística Maskoy.
+Registra un total de 8.167 habitantes y se encuentran asentados en los departamentos de Presidente Hayes, Boquerón y Alto Paraguay.
+Organizan congreso “El uso de la lengua guaraní y el coronavirus”
+A través de la plataforma Zoom se llevará adelante el día sábado 18 de julio, de 8:00 a 12:30, el congreso nacional “El uso de la lengua guaraní y el coronavirus” que lleva como lema “La terminología guaraní en tiempo de pandemia”.
+Se trata de una serie de conferencias que reúne a destacados exponentes del idioma guaraní en las áreas de traducción, intérprete, terminología, etc.
+El VI Congreso es organizado por Avañe’ẽ Kuaareka Aty (AKA) - Asociación de Investigadores de la Terminología, Traducción e Intérprete Guaraní (AITTIG).
+Tendrá una duración de 20 horas pedagógicas y la inversión es de tan solo 30.000 guaraníes (solo para quienes deseen contar con certificado).
+Consultas e inscripción en (0983) 336 322 / (0981) 840 359 / (0985) 395 033, o en ayvukuaareka@gmail.com.
+La ministra de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, tendrá a su cargo la presentación del tema “El caso de los términos de la Agencia Espacial del Paraguay (AEP)”.
+Otros destacados expositores desarrollarán: “El código de ética del traductor”, “Terminología jurídica en tiempo de pandemia”, “Terminología del coronavirus”.
+Asimismo, “La construcción del guaraní en el aula (desterrando el mito del guaraní de laboratorio)”, “Coincidencia de la terminología y la traducción en tiempo de pandemia”, “AKA dentro de la comunicación digital” y “La recuperación de la sintaxis guaraní”.
+El congreso está dirigido a intérpretes, traductores, terminólogos, docentes universitarios y estudiantes, comunicadores, representantes gubernamentales y todos los interesados en ampliar su conocimiento sobre el idioma guaraní.
+SPL presidió reunión virtual a favor de lenguas indígenas
+La ministra de la Secretaría de Políticas Lingüísticas (SPL) lidero la 1ª reunion virtual de Socialización y Validación del Protocolo de Refrendo y Reconocimiento de Normativización de las Lenguas Indígenas del Paraguay.
+También participaron de la misma, el asesor juridico de la SPL, Osvaldo Nuñez, la encargada de despacho de la direccion general de Documentación y Promoción de Lenguas Indígenas, Celia Godoy, y su equipo ténico.
+Asimismo, autoridades y representantes de la Secretaría Nacional de Cultura, Instituto Paraguayo del Indígena, Dirección General de Educación Escolar Indígena, además de miembros del consejo de dicha dirección.
+En la misma, el asesor jurídico de la SPL presentó un documento borrador del Protocolo de Refrendo y Reconocimiento de Normativización de las Lenguas Indígenas del Paraguay.
+Luego, los participantes discutieron el documento, además de emitir sus sugerencias y opiniones al respecto.
+Curso virtual gratuito de guaraní para funcionarios públicos
+La Secretaría de la Función Pública (SFP), desde el Instituto Nacional de la Administración Pública del Paraguay (INAPP), en conjunto con la Secretaría de Políticas Lingüísticas (SPL), lanzan el curso gratuito de Guaraní Comunicativo Nivel I en la modalidad virtual (Plataforma Moodle) dirigido a funcionarios públicos.
+Los interesados en participar del mismo pueden ingresar al siguiente enlace https://www.sfp.gov.py/sfp/noticia/14778-la-sfpinapp-convoca-a-servidores-publicos-a-postular-a-cursos-de-capacitacion-en-modalidad-virtual-.html#.Xv9z4ChKiUl; donde también se puede acceder a otros interesantes cursos ofrecidos por el INAPP.
+El curso de Guaraní Comunicativo Nivel I tiene una carga horaria de 40 horas (10 horas semanales); el límite de fecha para la postulación es hasta el jueves 9 de julio, y las clases iniciarán el lunes 13 de julio.
+Funcionarios públicos seguirán capacitándose en guaraní
+Tras la firma de un convenio de cooperación interinstitucional entre la Secretaría de Políticas Lingüísticas (SPL) y la Secretaría de la Función Pública (SFP), concretada este jueves, se podrán seguir desarrollando las clases de guaraní comunicativo para funcionarios públicos.
+El documento fue firmado por las máximas autoridades de ambas carteras de Estado, Ladislaa Alcaraz de Silvero (SPL) y su par de la SFP, Cristina B ogado.
+Gracias al acuerdo interinstitucional entre la SPL y la SFP, hasta la fecha ya permitió que muchos funcionarios públicos de varias instituciones se capaciten en lengua guaraní, con el objetivo de atender en su lengua propia a los ciudadanos guaranihablantes.
+Con la renovación del convenio concretada hoy se volverán a implementar el curso de guaraní comunicativo para seguir capacitando en el uso oral y escrito de este idioma a más funcionarios del Estado.
+La directora general de Planificación Lingüística de la SPL, Celia Godoy, acompañó a la ministra Ladislaa Alcaraz de Silvero.
+Ministra de SPL participó de una reunión virtual internacional
+América Latina es la región del mundo con la mayor riqueza lingüística con alrededor de 99 familias de lenguas.
+Las más de 500 lenguas indígenas diferentes que aún se hablan en América Latina están todas en situación de mayor o menor amenaza o riesgo, según los indicadores de vitalidad lingüística planteados por la Unesco (2010).
+La cuarta parte de estos idiomas están en riesgo de extinción, si es que no se toman medidas drásticas al respecto.
+Feliz día a todos los locutores del Paraguay
+La Secretaría de Políticas Lingüísticas (SPL) saluda y felicita a todos los locutores y las locutoras del país hoy por su día.
+Asimismo, reconoce y valora la importante tarea de los profesionales de la voz y de la palabra al ser ellos los constantes multiplicadores de los temas que atañen a nuestra sociedad utilizando como herramienta fundamental la palabra, en lenguaje oral.
+En ese sentido, al ser nuestro país plurilingüe (lenguas oficiales guaraní-castellano, diecinueve lenguas indígenas y lenguas extranjeras que coexisten en el país), son los profesionales de la comunicación quienes día a día amplifican la voz de nuestra riqueza lingüístico-cultural, a través de la utilización de estos distintos idiomas que nos hacen únicos como Nación.
+Es también muy importante la labor de los locutores por considerárseles como referentes en el uso correcto y adecuado del idioma, que finalmente constituye en su principal herramienta de trabajo.
+Por el Día del Locutor, desde la SPL queremos rendir un homenaje a cada una de las personas que cumplen esta encomiable labor en las diferentes localidades, comunidades, distritos y ciudades, de los distintos departamentos de toda la geografía paraguaya.
+Cada 9 de junio se celebra en Paraguay el Día del Locutor, ya que en esa fecha de 1950 fue fundada Alortpa (Asociación de Locutores y Operadores de Radio y Televisión del Paraguay), que luego, en el año 1991, pasó a llamarse Sintratel (Sindicato de Trabajadores de Radio y Televisión del Paraguay).
+Un día como hoy se declaraba al guaraní como único idioma oficial
+Un 28 de mayo de 1933, durante la Guerra del Chaco, el comandante del Ejército en Campaña, José Félix Estigarribia, mediante la Orden General Nº 51 “Declara al guaraní como idioma oficial de la Guerra” ordenando que las conversaciones y claves secretas se hagan exclusivamente en la lengua guaraní para mantener la máxima seguridad posible en las comunicaciones durante el desarrollo de las maniobras bélicas.
+Foto: internet.
+La citada orden general también disponía que toda infracción a esta disposición sobre el tráfico telefónico, su secreto y las reglas para el uso del teléfono sería severamente sancionada.
+En muchos episodios de la Guerra, el guaraní sirvió para que los paraguayos se identifiquen y se evitaran así inútiles matanzas entre ellos.
+Como idioma criptográfico, el guaraní ofreció serias dificultades para los bolivianos.
+El progresivo uso del guaraní en el ámbito judicial
+El idioma más hablado del país, el guaraní, que adquirió el estatus de lengua oficial en la última Constitución Nacional de 1992, junto con el castellano, ha dado pasos importantes que muestran la oficialización de su uso en distintos ámbitos, uno de ellos es el judicial.
+Desde el mismo texto de nuestro contrato social más importante, que viene a ser la Constitucional Nacional, fue traducido íntegramente a la lengua guaraní en el año 1992 por tres personas de reconocida trayectoria: Lino Trinidad Sanabria, Félix de Guarania y Dionisio Gauto.
+La normativa que reglamentó el artículo constitucional que refiere la oficialización del guaraní, la Ley 4251/10 “De lenguas”, en su artículo 15° indica que “ambas lenguas oficiales serán aceptadas indistintamente en la administración de la justicia”.
+En otros puntos, la mencionada ley también habla del valor jurídico de las declaraciones ante una autoridad en cualquiera de los dos idiomas oficiales; así como el derecho de utilizar cualquiera de las dos lenguas oficiales ante la administración de la justicia, y que las declaraciones sean transcriptas en la lengua elegida sin mediar traducción alguna.
+En ese sentido, merecen ser recordados y reconocidos, a través de este breve artículo, algunos hechos que demuestran la implementación oficial del guaraní en el ámbito judicial.
+Así, en agosto del 2013, la jueza en lo Civil del Cuarto Turno de Encarnación, Nilda Benítez, sacó una sentencia de ejecución en la lengua guaraní; esto, a raíz de que la abogada María Primitiva Villalba Ferrari haya presentado el escrito en el mismo idioma ante el Juzgado para la ejecución de una sentencia.
+Otro caso se dio en la ciudad de Villarrica en julio del 2016, donde el juez Paternio Emiliano Vera presenta sus alegatos finales en lengua guaraní, en el marco de un caso sobre homicidio doloso.
+En agosto del 2016, en la Circunscripción Judicial de Cordillera, el Tribunal, integrado por los jueces Antonio Ignacio Benítez López, Magdalena Narváez de Rodríguez y Alfredo Benítez Fantilli, realiza todos los alegatos y sentencia en guaraní sobre un hecho penal ocurrido en Emboscada.
+Asimismo, en setiembre del 2016, la jueza en lo Civil y Comercial de la Circunscripción Judicial de Encarnación, Nilda Benítez, dictó una sentencia judicial redactada en la lengua guaraní.
+Otro caso similar se dio en noviembre del 2016, cuando el Tribunal Permanente N° 1 de Ciudad del Este, integrado por el juez Milciades Ovelar, llevó a cabo un juicio oral y público en el idioma guaraní.
+El pasado martes 26 de mayo del 2020, el juez Tadeo Zarratea, titular del Juzgado del Quinto Turno en lo Laboral de la Capital, dictó una sentencia judicial en el fuero laboral redactada en el idioma guaraní.
+Cabe mencionar que desde la misma Corte Suprema de Justica se implementan medidas favorables para el uso del guaraní; así, en su estructura orgánica figura la Dirección de Políticas Lingüísticas Judiciales, desde donde se ha elaborado el Diccionario Jurídico Guaraní, para que los magistrados y auxiliares de justicia puedan implementar el uso de la lengua en su ámbito de trabajo.
+Asimismo, la CSJ aprobó en el 2013 la Acordada N° 838/13, que dispone la obligatoriedad del uso de los idiomas oficiales, guaraní y castellano, en todas las Circunscripciones Judiciales de la República del Paraguay.
+Estos hechos demuestran los avances en el proceso de la normalización del uso oficial de la lengua guaraní en un ámbito de extrema importancia para la ciudadanía, que es el acceso a la justicia; además, atendiendo que la población paraguaya en su mayoría es guaranihablante.
+Foto: Extracto de la sentencia firmada por el juez en lo Laboral Tadeo Zarratea.
+Promulgan ley que otorga reconocimiento oficial a la Lengua de Señas Paraguaya
+El Poder Ejecutivo promulgó la Ley 6530/20 “Que otorga reconocimiento oficial a la Lengua de Señas Paraguaya (LSPy)” como lengua de comunicación, de instrucción, de promoción de la identidad, la cultura y los derechos lingüísticos reconocidos a la lengua de señas como primera lengua de las personas con discapacidad auditiva de Paraguay, para la participación plena y efectiva en la sociedad.
+Con el acompañamiento de legisladores de ambas cámaras, el proyecto de ley fue impulsado desde la Subcomisión de Información, Comunicación y Lengua de Señas, de la Comisión Nacional por los Derechos Humanos de las Personas con Discapacidad (Conadis), liderada por la ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero.
+Según esta ley, el Estado paraguayo, a través de las instancias competentes, regulará la formación en las instituciones de formación y capacitación, la acreditación de intérpretes a través de la Secretaría de Políticas Lingüísticas.
+Informe de Gestión 2019 de la Secretaría de Políticas Lingüísticas
+La Secretaría de Políticas Lingüísticas (SPL) comparte con la ciudadanía toda el Informe de Gestión correspondiente al año 2019, donde se puede observar de nuevo el avance en el proceso de implementación de las políticas lingüísticas emprendidas desde esta cartera de Estado.
+En el año 2019, la SPL afrontó el importante desafío extra de liderar en el país la conmemoración del Año Internacional de las Lenguas Indígenas, a parte de los tantos otros proyectos emprendidos desde la institución que son favorables a las lenguas del Paraguay, y por ende a los hablantes.
+La normalización del uso oficial de la lengua guaraní; la planificación lingüística; la documentación y promoción de las lenguas indígenas, especialmente las que se encuentran en peligro de extinción y la investigación lingüística se resaltan entre los trabajos misionales de la SPL.
+Obras en guaraní para descargar gratis
+Una excelente forma de invertir el tiempo libre es leyendo, más aún en este tiempo de cuarentena por la seguridad sanitaria; por eso, el escritor Mauro Lugo puso a disposición de manera gratuita en formato PDF seis de sus obras en guaraní o bilingüe (guaraní-castellano), que incluyen ensayo, cuento, poesía, teatro y traducción al guaraní de obras universales.
+Para descargar y leer estos textos solo debes hacer clic en estos enlaces: Adolfina , Ita hũ ári , Karáũ , Léi renondépe , Sapy’aitemínte y Tembihechapy .
+El escritor Mauro Lugo es, además, traductor, docente, comunicador social y académico de número de la Academia de la Lengua Guaraní.
+En la misma se delinearon los planes a realizarse en el 2020.
+Por parte de la SPL, el técnico de la DGIL, Abelardo Ayala, brindó un pormenorizado informe acerca de las actualizaciones realizadas a la versión guaraní del navegador Mozilla (Aguaratata).
+A su vez, mencionó que la versión en guaraní de Mozilla se mantiene continuamente actualizada y que se convirtió en una referencia internacional, ya que es ponderada en cada encuentro internacional de Mozilla.
+En la reunión, realizada en la sede de la FPUNA en San Lorenzo, se presentaron los tres productos nuevos que Mozilla dio a conocer últimamente.
+Analizar el informe ejecutivo (reporte de rendición de las acciones realizadas y los objetivos alcanzados) de la Comisión Nacional de Conmemoración del Año Internacional de Lenguas Indígenas a ser remitido a los presidentes de los poderes Ejecutivo y Legislativo, de conformidad con el Art. 6° de la Ley 6352/19.
+La ministra de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, presentó el informe que remitirá al Ejecutivo y a las cámaras de parlamentarios, cumpliendo así con lo establecido en la Ley 6359/19.
+Entre los puntos que resaltó la titular se pueden mencionar las acciones realizadas desde definir los mecanismos para la selección del representante de pueblos indígenas, así como determinar otros mecanismos de participación y las estrategias para la elaboración de la normativa para el funcionamiento de la comisión.
+Así también, Ladislaa Alcaraz de Silvero mencionó los logros de la Comisión y las acciones pendientes que se desarrollarán en los siguientes meses, mediante las cinco subcomisiones que conforma la CNCAILI, que ayudarán a la concreción de los trabajos que favorezcan a las lenguas indígenas del Paraguay.
+Asimismo, analizar el informe ejecutivo de la Comisión Nacional de Conmemoración del Año Internacional de Lenguas Indígenas a ser remitido a los presidentes de los poderes Ejecutivo y Legislativo, de conformidad con el Art. 6 o de la Ley 6352/19.
+Foto: archivo.
+Ministra de SPL acompañó firma de acuerdo con las NNUU
+La ministra de la Secretaría de Políticas Lingüísticas (SPL), Ladislaa Alcaraz de Silvero, estuvo presente en el acto de firma de convenio entre el Ministerio de Relaciones Exteriores (MRE), la Secretaría Técnica de Planificación (STP) y las Naciones Unidas (NNUU).
+El acto se llevó a cabo ayer lunes 17 de febrero, en la sede de la Cancillería Nacional, en la ciudad de Asunción, siendo este documento el primero que se firma en América Latina.
+El acuerdo permitirá trabajar en forma coordinada e integrada a las instituciones del Estado paraguayo y las distintas agencias de las Naciones Unidas, rumbo al cumplimiento de los Objetivos de Desarrollo Sostenible (ODS).
+Personas con discapacidad visual acceden a tarjetas de billetaje electrónico
+En la mañana de este lunes se realizó la entrega de tarjetas de billetaje electrónico para personas con discapacidad visual, con presencia del presidente de la República, Mario Abdo Benítez, y otras altas autoridades del Poder Ejecutivo.
+La ministra de la Secretaría de Políticas Lingüísticas, Ladislaa Alcaraz de Silvero, también acompañó el evento realizado en la en la Explanada Litoral del Palacio de Gobierno.
+Las tarjetas de billetaje electrónico para personas con discapacidad visual son emitidas de manera gratuita (en su primera emisión) y deben ser solicitadas a través de la Senadis.
+Subcomisión de Conadis celebró su primera sesión del 2020
+La Subcomisión de Información, Comunicación y Lengua de Señas de la Comisión Nacional por los Derechos de las Personas con Discapacidad (Conadis) se reunió este miércoles con el fin de tratar temas que tienen relación a las normativas que afectan a las personas con discapacidad, la misma se realizó en el Salón Azul del Instituto Nacional de Educación Superior “Dr. Raúl Peña” (Inaes).
+La reunión fue presidida por la encargada de despacho de la Secretaría de Políticas Lingüística (SPL), María Alvarenga de Sánchez, entidad que lidera la Subcomisión.
+Los objetivos se enmarcaron en presentar los avances de la Subcomisión de Información, Comunicación y Lengua de Señas de la Conadis, así como definir las acciones y establecer acuerdos con los diferentes sectores integrantes de la Subcomisión.
+La directora general de Planificación Lingüística y el funcionario de Asesoría Jurídica, Celia Godoy y Pablo Salinas, respectivamente, acompañaron la reunión desde la Secretaría de Políticas Lingüísticas.
+La UNA ofrece licenciatura en lengua guaraní
+Desde el lunes 17 de febrero se inicia el cursillo de ingreso para la carrera de Licenciatura en Lengua Guaraní con énfasis en Educación Bilingüe Intercultural ofrecida por el Instituto Superior de Lenguas de la Facultad de Filosofía de la Universidad Nacional de Asunción.
+El cursillo es totalmente gratuito y se desarrollará de 18:00 a 20:00, en el Campus universitario de San Lorenzo, al costado de la Biblioteca Central de la UNA.
+Las clases iniciarán en la primera semana de abril hasta diciembre, de lunes a viernes de 18:00 a 21:00 horas.
+Para mayor información llamar al (0981) 463-338.
+La carrera en Lengua Guaraní tiene por objetivos que el alumno pueda manejar con fluidez el idioma, traducir del castellano al guaraní y viceversa, dedicarse a la enseñanza de la lengua, en otros.
+Los postulantes deberán demostrar un manejo básico del guaraní.
