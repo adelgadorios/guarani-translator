@@ -10,7 +10,8 @@ My project consists on creating an open-source Guarani translator that would be 
 - conda install -c conda-forge fairseq 
 - conda install -c conda-forge sentencepiece 
 - conda install -c anaconda cudatoolkit
--  conda install -c conda-forge nvidia-apex
+- conda install -c conda-forge nvidia-apex
+- conda install -c conda-forge tensorflow
 
 ## Data Sources
 - Uruguay Team's GitHub: https://github.com/sgongora27/giossa-gongora-guarani-2021
