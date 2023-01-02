@@ -14,6 +14,10 @@ My project consists on creating an open-source Guarani translator that would be 
 - conda install -c conda-forge tensorflow
 - pip install tensorflow-io
 
+## Run Training
+- cd guarani-translator/americasnlp2021/baseline_system
+- sbatch subset_name.sh
+
 ## Data Sources
 - Uruguay Team's GitHub: https://github.com/sgongora27/giossa-gongora-guarani-2021
 - Guaraní: Chiruzzo, L., Amarilla, P., Ríos, A., & Lugo, G. G. (2020, May). Development of a Guarani-Spanish Parallel Corpus. In Proceedings of The 12th Language Resources and Evaluation Conference (pp. 2629-2633).
