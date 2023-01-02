@@ -12,7 +12,7 @@ My project consists on creating an open-source Guarani translator that would be 
 - conda install -c anaconda cudatoolkit
 - conda install -c conda-forge nvidia-apex
 - conda install -c conda-forge tensorflow
-- pip install tensorflow-io
+- tensorflow-tensorboard
 
 ## Run Training
 - cd guarani-translator/americasnlp2021/baseline_system
