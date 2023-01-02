@@ -4,11 +4,12 @@
 Guarani is one of the two native languages of Paraguay; it is spoken by over seven million people in Praguay and has a rich history that dates back even before the Spanish Conquistadors landed in South America in the late 1400s. As of now there is no way for someone to translate this language without the help of a native speaker. As of today, there exists no translator that can be used by the public both in Paraguay and the rest of the world. The Paraguayan Government is reluctant towards creating the proper resources for Guarani even though over 90% of the Paraguayan population speaks it.
 My project consists on creating an open-source Guarani translator that would be available to the public through both a website and mobile apps. 
 
-##Conda Environment Setup
+## Conda Environment Setup
 - conda create --name guarani
 - conda activate guarani
 - conda install -c conda-forge fairseq 
 - conda install -c conda-forge sentencepiece 
+- conda install -c anaconda cudatoolkit
 -  conda install -c conda-forge nvidia-apex
 
 ## Data Sources
